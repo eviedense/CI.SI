@@ -16,15 +16,19 @@ There's a bunch of other details that don't belong in this synopsis (such as Cis
 
 # SONGS FOR PART 1:
 https://open.spotify.com/track/0gdeQ6Qalgdzg5lniSzTG0?si=f49a64b4b1ae4111
+
 __Mind As Universe - We Are Magonia - Ghostrunner 2 Soundtrack__
 
 https://open.spotify.com/track/50Xb4eMPjIivu8NIJFNOAV?si=fcef5212b1f74cf6 
+
 __Everything Is Going to Be Okay - Mick Gordon - Prey Soundtrack__
 
 https://open.spotify.com/track/0AAMnNeIc6CdnfNU85GwCH?si=163f17adcf5b4637 
+
 __Self Love - Metro Boomin, Coi Leray - Spider-Man: Across the Spider-Verse__
 
 https://open.spotify.com/track/6EO56btPzDF3LUrfwlXi2j?si=e1b3c1cbcc2846d5 
+
 __Undefeatable - SEGA SOUND TEAM, Kellin Quinn - Sonic Frontiers Soundtrack__
 
 
