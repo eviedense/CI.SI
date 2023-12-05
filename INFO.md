@@ -14,7 +14,7 @@ The boyfriend (I swear I'm gonna update this when I get a name for him I LITERAL
 Blah blah blah, they go kick the boyfriend's ass and get vengeance for the *many* people he killed for absolutely no reason. 
 There's a bunch of other details that don't belong in this synopsis (such as Cisila's lighthouse hideout with Dani, and Cisila's motorbike) That I'll explain in-depth on their own in their own little files.
 
-# SONGS FOR THIS ONE:
+# SONGS FOR PART 1:
 https://open.spotify.com/track/0gdeQ6Qalgdzg5lniSzTG0?si=f49a64b4b1ae4111 __Mind As Universe - We Are Magonia - Ghostrunner 2 Soundtrack__
 https://open.spotify.com/track/50Xb4eMPjIivu8NIJFNOAV?si=fcef5212b1f74cf6 __Everything Is Going to Be Okay - Mick Gordon - Prey Soundtrack__
 https://open.spotify.com/track/0AAMnNeIc6CdnfNU85GwCH?si=163f17adcf5b4637 __Self Love - Metro Boomin, Coi Leray - Spider-Man: Across the Spider-Verse__
