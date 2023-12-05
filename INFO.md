@@ -33,3 +33,49 @@ __Undefeatable - SEGA SOUND TEAM, Kellin Quinn - Sonic Frontiers Soundtrack__
 
 
 Context for all of these is too much to include here (it'd be going over scenes that I already went over) so guess.
+
+
+# PART 2
+
+# SONGS FOR PART 2
+
+https://open.spotify.com/track/3J5IqnyboheEVFtqtiGoKi?si=35305df51a9346b4
+
+__EgoStrip - Dan Terminus - Ghostrunner 2 Soundtrack__
+
+https://open.spotify.com/track/0s1ixXhOkIa3BvdAFuKMe3?si=87484b21fc7c403e
+
+__Road Zero - Dan Terminus - Ghostrunner 2 Soundtrack__
+
+https://open.spotify.com/track/5G5hspjbhZC9s6btkm76rN?si=74d7ebdb55c64543
+
+__Swing - EARTHGANG., Benji - Marvel's Spider Man 2__
+
+https://open.spotify.com/track/1O80Lhuq0lKHIiF1HnMgQT?si=84db5fbc694b4854
+
+__Find Your Flame - SEGA SOUND TEAM, Kellin Quinn, Tyler Smyth - Sonic Frontiers Soundtrack__
+
+
+# PART 3
+
+
+
+# SONGS FOR PART 3
+
+https://open.spotify.com/track/57bgtoPSgt236HzfBOd8kj?si=61c905add9e94768
+
+__Thunderstruck - AC/DC__
+
+https://open.spotify.com/track/1YVar26ybtm5EKNj7qUwN5?si=3717df680b644476
+
+__Violence and Timing - Sarach Shachner - Modern Warfare 2 (2022) Soundtrack__
+
+https://open.spotify.com/track/6TYmJ1XW6AvYVsoJNuwRjC?si=ce3402f7a2d140be
+
+__Questionable Ethics - morch kovalski - Unforeseen Consequences__
+
+https://open.spotify.com/track/1XD1Acc4XiKaScHEg0M3Av?si=6b466c944f254bc3
+
+https://open.spotify.com/track/6sjFDBSLdnotSSXsFvN1nP?si=59c42f5d3ae046c6
+
+__Forget About Freeman - morch kovalski/Joel Nielsen - Unforeseen Consequences/Black Mesa Soundtrack__
