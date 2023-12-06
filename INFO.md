@@ -37,6 +37,23 @@ Context for all of these is too much to include here (it'd be going over scenes 
 
 # PART 2
 
+
+Part 2 is where things are supposed to get a little more clear. Cisila's origin, the reason for her vendetta, etc., etc. 
+It starts at least a month after the first part ends. Cisila's at home, when suddenly - she hears a window smash. In her bedroom. She rushes in, only to see someone diving out the window, having one of her blueprints (the ones she makes to assist her in constructing stuff using her ability) and immediately goes after him - not having time to change into her V outfit, only able to put the mask on. Eventually, she catches the thief, and it's revealed that he knows who she is. He was trying to see if he too, could do these things. And she recognizes him - he's the only son of the CEO of PALMER-EDEN. But he doesn't look healthy, he looks pretty tortured. And then she notices the most important thing: his arms have been replaced with cybernetic augmentations. Professional military-grade prosthetics only in use by the Army. He seems to have been an experiment.
+
+Once she explains her situation to Adam (that's his name), they consolidate their experiences with PALMER-EDEN and agree that they have to take it down. Adam is supposed to be the radical one of the group, while the others (Lyla & Dani) are the reasonable ones. This part of the story is supposed to be a tug of war, basically, between Cisila's conscience and what she wants to do. I'm not exactly sure what needs to happen during this part of this story, but I explained the idea. That's what's important.
+
+The 'third act' we'll call it is probably based around ramping up the action, wherein the CEO finally notices his son is gone - and sends a security force after him, and subsequently, the rest of the team. Upon being asked if the team should be killed, and one of the soldiers points out they have abilities, the CEO tells them to "Capture them.". The only one who actually gets captured is *Lyla* of course, because, y'know, conflict. This finally sparks Cisila's radical side, and without Lyla to keep him down, Adam manages to convince Cisila that she needs to get Lyla back, no matter the cost. Yeah, there's supposed to be a cool train set piece that happens here- Lyla, being transported who knows where, and Cisila & Adam have to hop on the train and fight through it- starting on the roof.
+Again, boom, bang, epic fight. Weeee! Eventually, they cause the train to crash. And due to the route it's taking, it crashes in a pretty bad area to crash in. Cisila gets Lyla out, Dani shows up, and Adam's still there. This is where the CEO and COO finally show themselves...and they don't look too good. It looks like, eventually, they ended up experimenting on themselves. They have more augmentations than Adam, but it's clear they also gave themselves a few abilities, taken from test subjects. 
+
+GUESS WHAT. ANOTHER DEFINITELY EPIC FIGHT. I swear there's a lot of shit going on here. I just can't explain it in a synopsis like this.
+
+
+
+
+
+
+
 # SONGS FOR PART 2
 
 https://open.spotify.com/track/3J5IqnyboheEVFtqtiGoKi?si=35305df51a9346b4
