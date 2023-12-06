@@ -48,7 +48,7 @@ Again, boom, bang, epic fight. Weeee! Eventually, they cause the train to crash.
 
 GUESS WHAT. ANOTHER DEFINITELY EPIC FIGHT. I swear there's a lot of shit going on here. I just can't explain it in a synopsis like this.
 
-
+Cisila, Adam, Lyla, and Dani fight back (as they've no other choice) and the battle gets pretty bloody. By the end, with the CEO and COO at their knees, Adam takes his chance. He snatches Cisila's pistol, holds it to the forehead of the CEO, and pulls the trigger before anyone can stop him. Adam just killed the CEO of a major company right in the middle of a city (that's where the train crashed). And this'll set up part 3. Adam breaks away from the group, disappearing into the shadows. Cisila, Lyla & Dani don't have enough time to leave before the media shows up. Of course. Duh. That's when the COO takes her chance, and grabs Lyla again. She seems to have regained the strength she lost during her fight with Cisila. Cisila, left with no other choice, has to stab the COO. Once she's free, the gang bolts, leaving the scene. 
 
 
 
@@ -75,7 +75,15 @@ __Find Your Flame - SEGA SOUND TEAM, Kellin Quinn, Tyler Smyth - Sonic Frontiers
 
 # PART 3
 
+Part 3 is probably the most chaotic. After the events of the last one, Cisila's gotten in trouble. *Major* trouble. It turns out the U.S government keeps records of all the superpowered individuals, and she was on that list. Unfortunately, someone from the government must have recognized her due to the commotion that Adam caused. They know she's a part of the problem, and connect the dots, and figure out that she's V, unfortunately for her. Instead of arresting her, they give her a 'deal'. Join the Army as part of a classified squad, or die. It's not a deal. Obviously, it's the U.S government.
 
+Naturally, she accepts. She's put into a squad named Delta Squad. There are six members in the squad (including her). DELTA-PRIME, DELTA-2, DELTA-3, DELTA-4 (he'll be important) DELTA-5, and Cisila herself, DELTA-6. She notices that a couple of the other members have abilties, but when their first mission comes, their commander gives them these strange metal arm bands, and instructs them to put the bands on. They do, obviously. These completely constrict their abilities, and stop them from using them. It then becomes clear what the purpose of the squad was. The mission seemed like it would benefit greatly from the superpowered abilities, but without them, it'd be suicide. And that...was the point. There wasn't really a deal that Cisila accepted, she just delayed her demise. But, the team works so well together that despite the odds, they get through their first mission. This...continues to happen. The team works efficiently, figuring out the least suicidal way to complete every mission they're sent on.
+
+Eventually, they get a big one. This mission concerns the whole army, though, so they'll have to work with other squads (like them). The mission is supposed to be reminiscent of the HECU's goal in Half-Life, until the Army decides to nuke Black Mesa. Destroy the threat by all means necessary by boots on the ground and air support. But obviously, like Half-Life, it's suicide. Apparently the biggest military base out in Nevada is under siege by a strange man, using his abilities to take over the personnel and turn them into zombies (zombies that can use guns). He seems to also be able to create strange organisms from his hand, almost like a variation of Cisila's ability, but focused on giving life.
+
+There are two ways I've thought of the squad entering: A VTOL that crashes into the cliffside of the base, and they have to rappel up and get inside. The second would be a mishap with drop pods. Like in Halo, they'd be put in drop pods and ejected straight into the LZ. Obviously, something bad happens. This is how storytelling works.
+
+Either way, they end up inside the facility, with about half or so of the squad disconnected. They make their way through, meeting soldiers here and there, and some personnel at the base that haven't been 'infected' so to say. Once they get outside, they see the absolute chaos. Basically, all I'll say here is, refer to Chapter 13: Forget About Freeman in Black Mesa. That's how bad this is supposed to be. And currently is.
 
 # SONGS FOR PART 3
 
