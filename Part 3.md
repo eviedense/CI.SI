@@ -1,8 +1,8 @@
 # 1
-# NEW JERSEY, U.S.A
-# 16:18, MILITARY TIME
-# JULY 20TH, 20XX
-# SGT. CISILA SIVETA, 24
+### NEW JERSEY, U.S.A
+### 16:18, MILITARY TIME
+### JULY 20TH, 20XX
+#### SGT. CISILA SIVETA, 24
 
 The first time she held a gun, she was 14. Her father didn't like doing it. The Glock was pretty sizeable in her hands, and her father was reluctantly helping her shoot. "When you put the magazine in, make sure to pull the slide back. Else you'll waste valuable time."
 
@@ -26,10 +26,10 @@ As soon as she got back to her quarters (which were strangely large and well dec
 She crossed her arms and went over the situation again in her head...
 
 # 2
-# MALI, AFRICA
-# 20:00, MILITARY TIME
-# JULY 10TH, 20XX
-# SGT. CISILA SIVETA, 24
+### MALI, AFRICA
+### 20:00, MILITARY TIME
+### JULY 10TH, 20XX
+#### SGT. CISILA SIVETA, 24
 
 "Alright, NVGs down, flashlights off. We can't be seen." This statement from DELTA-PRIME was followed by a series of small clicks as the squad's flashlights flicked off, and then a small whirr as they pulled their NVGs down. Cisila was the last to follow, and the green lights of her NVGs was offputting. She hadn't used these in a proper environment before.
 
@@ -62,7 +62,7 @@ What? That's not what she meant. "No, don't go loud. Try to stay quiet as long a
 DELTA-PRIME interrupted her. "We've got grenade launchers. We'll be fine." Cisila grumbled, "Fine."
 
 # 3
-# MALI, AFRICA
-# 20:23, MILITARY TIME
-# JULY 20TH, 20XX
-# Capt. uhhhhhh idk
+### MALI, AFRICA
+### 20:23, MILITARY TIME
+### JULY 20TH, 20XX
+#### CAPT. ALEXANDRIA KELLIEN
