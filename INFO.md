@@ -104,3 +104,36 @@ https://open.spotify.com/track/1XD1Acc4XiKaScHEg0M3Av?si=6b466c944f254bc3
 https://open.spotify.com/track/6sjFDBSLdnotSSXsFvN1nP?si=59c42f5d3ae046c6
 
 __Forget About Freeman - morch kovalski/Joel Nielsen - Unforeseen Consequences/Black Mesa Soundtrack__
+
+
+# PART 3 PASSAGE
+
+The doors fell right off their hinges as she kicked them open. It looked like they had been battered for hours, so she wasn't surprised when they slammed into the desert floor. She stepped out into the light, shielding her eyes from the sun with her arm. It was bright, much brighter than she was used to. But she was still glad to see it. As her eyes adjusted, she looked at her surroundings. The sun was beginning to set, the sky a strange mixture of orange and purple, like a sea of oil paint. Smoke was rising from the other parts of the base. She took a couple more steps forward, her boots crunching against ash on the ground. It had felt like an eternity since she had been outside the base, when in reality...it must've only been a few hours. Now, in the light, she looked down at herself. Her uniform was coated in dust, dried blood, and she was generally pretty gross. When she looked up around the base once more, she noticed something. Something far in the distance. *Jets,* She thought. *They're just air support.* But then her radio crackled to life, which, after being unable to use it underground, startled her. She flung her hand up to the radio and tuned it to get the right frequency. It clicked, and a voice came through.
+
+*"This is DELTA-PRIME. If anyone from DELTA can hear me, we're in the middle of an evac. This place isn't safe. Control says we've lost too many men. They've got VTOLs landed outside the south side of the base, so if you're still alive, any of you, you need to get out of there. They leave in an hour."*
+
+*Shit,* She looked around in a sudden panic, and rummaged through her uniform, pulling out a compass. *The south side of the base...* The compass pointed back towards the building she had just come from...which meant the evac point was either on the cliffside, or at the bottom of the cliffs.
+
+Then the radio came to life again, crackling - it was a different channel. She clicked it to the right one, still unsure of where to move.
+Then, a panicked voice came through.
+
+
+*"We're dead! The government's just approved the use of nukes."*
+
+
+Her eyes went wide. *What?*
+
+
+*"If anyone's still alive out there-"*  The soldier on the other side stopped for a moment, *"You- you need to get the fuck out. We've got five hours to run. Control's ditching us."*
+
+
+That meant she was alone. With only five hours to do what she came to do, she wasn't sure if she'd live afterwards.
+
+
+But, that never stopped her. And it certainly was not going to stop her *now*. She started forwards, lifting her rifle up. She racked the bolt, and broke into a sprint towards the main building. The soldier on the radio continued...
+*"All of you need to forget about the mission and save yourselves! It's all you can do..."*
+
+That man was wrong. She was *not* going to let a superpowered maniac run around free. She knew the nukes wouldn't do a damn thing to the guy.
+
+But she could.
+
