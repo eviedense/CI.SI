@@ -66,6 +66,7 @@ DELTA-PRIME interrupted her. "We've got grenade launchers. We'll be fine." Cisil
 ### 20:23, MILITARY TIME
 ### JULY 20TH, 20XX
 #### CAPT. ALEXANDRIA KELLIEN
-
+##### Surface Tension 1 - Joel Nielsen - Black Mesa Soundtrack
+##### https://open.spotify.com/track/0GZBEPoEs07fbSP9ypgGTS?si=bc0559ce9a40479f
 
 She attached the C4 breach charge to the door and stepped back, raising a hand. "Take cover." She ducked around the corner, followed by DELTA-5 and DELTA-2, while DELTA-3 hung back in a different position. 
