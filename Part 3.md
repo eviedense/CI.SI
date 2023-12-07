@@ -66,3 +66,6 @@ DELTA-PRIME interrupted her. "We've got grenade launchers. We'll be fine." Cisil
 ### 20:23, MILITARY TIME
 ### JULY 20TH, 20XX
 #### CAPT. ALEXANDRIA KELLIEN
+
+
+She attached the C4 breach charge to the door and stepped back, raising a hand. "Take cover." She ducked around the corner, followed by DELTA-5 and DELTA-2, while DELTA-3 hung back in a different position. 
