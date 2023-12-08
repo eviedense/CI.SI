@@ -25,6 +25,8 @@ Oh. That made sense. "I'm going back." She muttered, and turned away, walking to
 As soon as she got back to her quarters (which were strangely large and well decorated) she slumped into her chair and leaned back. She hadn't even done that much, and she felt tired. Cisila was always, *always* tired here. She never felt at home, and the amount of things she had to do every day killed her motivation to do anything else. Just a few days ago, they had been sent out on a mission to Africa to take out a "traitor" American cell hiding out in Mali. 
 She crossed her arms and went over the situation again in her head...
 
+-
+
 # 2
 ### MALI, AFRICA
 ### 20:00, MILITARY TIME
@@ -61,12 +63,42 @@ What? That's not what she meant. "No, don't go loud. Try to stay quiet as long a
 
 DELTA-PRIME interrupted her. "We've got grenade launchers. We'll be fine." Cisila grumbled, "Fine."
 
+-
+
 # 3
 ### MALI, AFRICA
 ### 20:23, MILITARY TIME
 ### JULY 20TH, 20XX
-#### CAPT. ALEXANDRIA KELLIEN
+#### CAPT. ALEXANDRIA KELLIEN, 30
 ##### Surface Tension 1 - Joel Nielsen - Black Mesa Soundtrack
 ##### https://open.spotify.com/track/0GZBEPoEs07fbSP9ypgGTS?si=bc0559ce9a40479f
 
 She attached the C4 breach charge to the door and stepped back, raising a hand. "Take cover." She ducked around the corner, followed by DELTA-5 and DELTA-2, while DELTA-3 hung back in a different position. Alex pulled out the detonator, and pressed down the button. It clicked, and in a flash, the door blew off its hinges with a loud *bang*, and the four moved in. DELTA-5 went first, checking corners. Alex herself went next, following right behind Five. The warehouse was large, dingy, and filled with ship containers. Five went around a corner, and suddenly - he opened fire. The blinding muzzle flashes of his rifle illuminated the alley between the ship containers where they were moving, and Alex spotted a couple men moving back. She ducked between another set of ship containers, pulling down her NVGs and approaching the spot where the men were. She rounded the corner, and realized she was too close. She dropped her rifle (which flung back under her arm, as it was attached to a sling) pulled out her combat knife and cut through one of the men in one clean motion. The second man noticed her, and pulled out his pistol. Before he could even get a shot off, Alex lunged forward, and swiftly, she ripped apart the pistol in the man's hands, broke his arm and slammed him straight into the ground. She looked up, "Clear. Move on." 
+
+She stared down at the man, and without any feeling of remorse, she unholstered her pistol and shot him through the head. The mission was to kill them all, of course, and that was what she was going to do. She motioned towards the rest of the squad to keep moving. They sweeped through the first floor of the warehouse, but found nothing. The soldiers must have booked it already and were outside. Alex switched on her radio, "Six, do you-" but she wasn't able to finish her sentence. She heard soldiers outside yell "SNIPER!" which was followed by the subtle *booms* of Six's sniper rifle. Two turned to Alex, grinding his teeth. "We need to get out of there. Six can't take them out alone." Five and Three nodded, and Alex grumbled. "Get a move on, then." She led the squad outside, and as soon as they got outside, she remembered something...
+
+Six wouldn't be able to tell who was who. These American traitors had the same gear as them- Alex swore under her breath and stopped the squad. She flicked on her radio, "Six. For the love of God, please watch your fire. We're coming out."
+
+Six responded, in her quiet mumble, "Roger that..." She seemed focus. That was the thing Alex liked about Six: when she was focused, she'd do her damn job. And she'd do it better than the one replaced, nine times out of ten. But whenever they were off duty, she'd shrink into the background. Alex wanted to wonder why, but it wasn't important, therefore, she ignored it. 
+
+She lifted her rifle back up. "You boys know what to do. Let's get this over with and get the hell outta here." Deltas Two, Three and Five all nodded. They rushed towards the group of traitors, who were running for it. Alex thought they had hidden their vehicles somewhere, and were running for them. They wouldn't get there. She held down the trigger of her rifle and emptied the magazine in the general direction of the running men. The muzzle of her rifle illuminated the path they were following every time it flashed after a shot. They were following a small dirt path towards a smaller warehouse - it must be where they keep their vehicles, she thought. But before she could even think of stopping them...
+
+A large, dual-propellered helicopter flew over them- she'd somehow not heard it until just now. Her eyes went wide under her NVGs as she saw a large machine gun stapled to the side of the helicopter swivel towards them, and she yelled "GET DOWN!"
+
+-
+
+# 4
+### MALI, AFRICA
+### 20:33, MILITARY TIME
+### JULY 20TH, 20XX
+#### SGT. CISILA SIVETA, 24
+##### Violence And Timing - Sarach Shachner - Modern Warfare 2 (2022) Soundtrack
+##### https://open.spotify.com/track/1YVar26ybtm5EKNj7qUwN5?si=72497317e87242b6 
+
+Cisila swore under her breath. That helicopter would take the rest of them out, if it could find them. She'd completely lost the rest of the squad as they dived into the brush, and they'd be safe for at least a couple of minutes. Behind her, she heard Ducain get up and approach her. "I might have something that can stop that chopper." He said, seeming straight to the point. She turned to look at him, and lifted her NVGs. "Unless you've got an RPG up your sleeve, nothing's taking that down." She turned away after she said this, and heard him pull something out of his vest. She decided not to pay attention, and instead kept her scope trained on the second warehouse. The soldiers had gotten inside, but for some reason hadn't left yet. Something clicked behind her...it must be Ducain, she thought. The hell was he doing? And then another click. And then suddenly...the helicopter burst into flames. She looked up in shock - the flames were as bright as the sun in the pitch black of this abandoned desert.
+
+She racked the bolt of her rifle once more as she noticed the soldiers, equally as shocked, peered out of the building. Like DELTA-PRIME said, the mission was why they were here. She begin firing on the warehouse, hitting a soldier every now and then. In the middle of this, her radio sputtered and crackled with various "Got him!" and "Outta the way!" from the other squad members- she couldn't tell where they were, but soon enough, after she had to reload for the second time, every soldier was on the ground - dead.
+
+The helicopter had whirled out of control and crashed rather loudly over a hill. "Six, Four - get down here. We need to get out of here." Oh. Great. PRIME wanted them down there. She got up, picked up her rifle, and headed towards the area where the squad descended, with Ducain following behind her. The two climbed down the cliffside, and once on the ground, they walked across the sand towards the path, and entered the warehouse. The squad had begun to relax, because now they were alone. No targets, nothing. Two was sitting on a box. Five was leaning against a workshop desk. Three was sitting, hands in his face.
+
+Cisila grabbed a chair, tugged it over to where the rest of the squad was sitting. She sat back in it, and it creaked weakly. Ducain just sat on the floor. DELTA-PRIME sighed, "Evac's not going to be here for a couple of hours."
