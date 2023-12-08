@@ -102,3 +102,7 @@ She racked the bolt of her rifle once more as she noticed the soldiers, equally 
 The helicopter had whirled out of control and crashed rather loudly over a hill. "Six, Four - get down here. We need to get out of here." Oh. Great. PRIME wanted them down there. She got up, picked up her rifle, and headed towards the area where the squad descended, with Ducain following behind her. The two climbed down the cliffside, and once on the ground, they walked across the sand towards the path, and entered the warehouse. The squad had begun to relax, because now they were alone. No targets, nothing. Two was sitting on a box. Five was leaning against a workshop desk. Three was sitting, hands in his face.
 
 Cisila grabbed a chair, tugged it over to where the rest of the squad was sitting. She sat back in it, and it creaked weakly. Ducain just sat on the floor. DELTA-PRIME sighed, "Evac's not going to be here for a couple of hours."
+
+And so they waited. And waited. In complete and utter silence, they stayed there until they heard the loud, whirring rotors of a large VTOL aircraft. They were finally going to get back - and hopefully, they'd get a rest.
+
+-
