@@ -97,12 +97,82 @@ A large, dual-propellered helicopter flew over them- she'd somehow not heard it 
 
 Cisila swore under her breath. That helicopter would take the rest of them out, if it could find them. She'd completely lost the rest of the squad as they dove into the brush, and they'd be safe for at least a couple of minutes. Behind her, she heard Ducain get up and approach her. "I might have something that can stop that chopper." He said, seeming straight to the point. She turned to look at him, and lifted her NVGs. "Unless you've got an RPG up your sleeve, nothing's taking that down." She turned away after she said this, and heard him pull something out of his vest. She decided not to pay attention, and instead kept her scope trained on the second warehouse. The soldiers had gotten inside, but for some reason hadn't left yet. Something clicked behind her...it must be Ducain, she thought. The hell was he doing? And then another click. And then suddenly...the helicopter burst into flames. She looked up in shock - the flames were as bright as the sun in the pitch black of this abandoned desert.
 
-She racked the bolt of her rifle once more as she noticed the soldiers, equally as shocked, peered out of the building. Like DELTA-PRIME said, the mission was why they were here. She begin firing on the warehouse, hitting a soldier every now and then. In the middle of this, her radio sputtered and crackled with various "Got him!" and "Outta the way!" from the other squad members- she couldn't tell where they were, but soon enough, after she had to reload for the second time, every soldier was on the ground - dead.
+She racked the bolt of her rifle once more as she noticed the soldiers, equally as shocked, peered out of the building. Like DELTA-PRIME said, the mission was why they were here. She begin firing on the warehouse, hitting a soldier every now and then. In the middle of this, her radio sputtered and crackled with various "Got him!" and "Outta the way!" from the other squad members- when suddenly, she heard a yell through the radio. Looking through her scope, she saw Five on the ground, writhing with pain while a set of soldiers approached him, rifles raised. It seemed like they intended to take him hostage. Her brain worked faster than normal, and she felt her hands move the rifle carefully. She pulled the trigger, felt the rifle recoil, and then watched one of the soldiers fall to the ground. She almost felt as if she was moving in slow motion, and each soldier fell over like a bowling pin after each shot. She flicked on her radio, "Five is down. Someone get him!" She said more audibly than usual - and through the scope she saw Three run up, latch onto Five, and drag him into cover. 
 
-The helicopter had whirled out of control and crashed rather loudly over a hill. "Six, Four - get down here. We need to get out of here." Oh. Great. PRIME wanted them down there. She got up, picked up her rifle, and headed towards the area where the squad descended, with Ducain following behind her. The two climbed down the cliffside, and once on the ground, they walked across the sand towards the path, and entered the warehouse. The squad had begun to relax, because now they were alone. No targets, nothing. Two was sitting on a box. Five was leaning against a workshop desk. Three was sitting, hands in his face.
+She stopped looking through her scope and looked up at the chopper- it was whirling around like it was in a tornado, invisible forces seeming to push it. It continued to whirl around, spinning closer and closer to the warehouse, which was being lit by the flames engulfing the chopper. Its blades suddenly stopped spinning and it plummeted towards the shed like a heavy dumbbell. She heard DELTA-PRIME over the radio yell, "RUN!" but had no idea if they had time to when-
 
-Cisila grabbed a chair, tugged it over to where the rest of the squad was sitting. She sat back in it, and it creaked weakly. Ducain just sat on the floor. DELTA-PRIME sighed, "Evac's not going to be here for a couple of hours."
+The helicopter made impact with the warehouse, and both exploded into flames. In the light, she could see the enemy running into the desert, but she knew she wouldn't be able to hit them. She knew that, unfortunately, they'd failed. She looked back at Ducain, and immediately lashed at him. "What the hell was THAT? Was that YOU?!" Ducain looked taken aback for a moment. "I thought it'd help...I suppose it didn't." Cisila rolled her eyes, "Yeah, sure, set a chopper on fire with some magic or whatever. Kill the pilot and send him straight AT OUR OWN SQUAD." She punched the ground, sending sand everywhere. "You also let the enemy escape. You absolute-" Ducain held up a hand to stop her. He sighed, then remarked, "There's nothing I can do about it. I thought it would crash somewhere else." Cisila grumbled, and heaved herself up. She slung the TAC-338 over her shoulder, and flicked on her radio. "Alex, we need evac. We failed." There was a momentary silence in the darkness. Cisila wondered for a moment if Kellien had died in the explosion, and if- the radio crackled, and to her relief, she got a response: "I know. Command's going to put us on something really bad because of this." Cisila nodded, though she knew only Ducain could see her. 
 
-And so they waited. And waited. In complete and utter silence, they stayed there until they heard the loud, whirring rotors of a large VTOL aircraft. They were finally going to get back - and hopefully, they'd get a rest.
+The only thing to do now was to wait for evac to arrive.
 
 -
+
+# 5
+### NEW JERSEY, U.S.A
+### 16:21, MILITARY TIME
+### JULY 20TH, 20XX
+#### SGT. CISILA SIVETA, 24
+
+She shook her head. They hadn't had any orders from anyone over the past week and a half since the mission, so if there was going to be anyone yelling at them, it'd probably be today. And just on cue, her phone blipped with a text message from Kellien. She picked up her phone and read the message,
+
+*General wants us down in his office. Not good.*
+
+Not good was right. Cisila got up from her chair, shoved her phone into a pocket, and quickly left her room. She walked down a few hallways, descended a set of stairwells that went much deeper into the base, and eventually found herself at the door to General Rockwell's office. She knocked, and got a solemn "Come in." from the General inside. She took hold of the knob, turned it and pushed the door open slowly. It didn't creak, she noticed, as it usually did. She took a step forward and shut the door quietly behind her, and when she looked up, she saw all the squad standing awkwardly in front of Rockwell's desk. She sidled in next to Three and Five, who was still bandaged up from his wounds. Five looked pretty grizzly (his beard was really quite bushy), but was quite soft in actuality. He had this sad dog look to him at the moment, as he eyed the general. Three was short, clean-shaven, and reminded her of someone she'd seen before, but she couldn't quite put her finger on it. 
+
+She was snapped back into the moment when the general first spoke, "Alright...let's get this over." He dropped a pen on his desk, and it clattered along the wood and almost rolled off the edge. "You failed. I don't like saying that. But this is inexcusable. The amount of times you've finished a mission more difficult than this is astounding. Why is this the first one you've failed?" *And how are you still alive,* she guessed he was thinking. Rockwell clasped his hands together, "Lucky for you, command's got something that requires your...expertise." He eyed each of them, his grey eyes scanning their faces. He was old, but looked rather decent for his age. A short beard encompassed the lower part of his face, while his hair, however unstylish it was, was in an unkempt mullet. His eyes landed on Cisila, "Specially you, girl." Cisila returned his stare, reluctantly. He looked away and addressed Kellien, "We've got a big problem. One of our largest military bases is under siege by...someone..." his eyes flicked towards Cisila again, "with Enhancements from PALMER-EDEN, or so we think. He took over the base within an hour, cutting off all communication and endangering the surrounding area." Kellien stepped forward, "Sir, what does this man have as abilities?" Cisila knew that Kellien had abilities like she did, but she still got taken aback every time she mentioned it. Kellien never seemed like she needed or used her abilities, even with the band that suppressed them off.
+
+Rockwell sighed, "He seems to be able to create living organisms from nothing." Cisila's eyes went wide for a few moments, and it was like the floor dropped out from under her. She'd seen someone with the ability to smash a human together from other human parts (Mikhail, her mind remembered) but never one that could CREATE one. Her head went dizzy for a moment, realizing this was basically her ability, but focused on making living beings. She shook her head and grounded herself in the moment again, remembering not to keep doing that. "In addition," The general grumbled, "Seems like he can turn personnel into zombies or whatever. We estimate he's got about half the base...infected, if you will." Kellien shook her head, "And what's our mission? Kill him?" Rockwell stared at her for a moment, as if going through the things he could say. *Your mission is to throw yourselves off a cliff,* Cisila thought. That's what it always was. "Yes...your mission is to kill him, and make sure the base doesn't get razed. We're sending in a whole ton of the army aswell, to retrieve data and take out as many of these infected people as possible. But your mission...again...is to kill him." From his tone, Cisila could tell he didn't think he'd be seeing them again after they left. "When...do we leave?" Cisila mumbled. Better to get it over with. Kellien raised an eyebrow at her. Cisila shook her head.
+
+Rockwell grumbled, "Welp, since you're asking...you might as well go now. Get the hell outta my office and to your designated VTOL." The squad nodded, and left. Cisila was the last to the door when the general grunted at her. She looked back, with a confused look on her face. "Give that motherfucker hell, alright girl?" Cisila raised an eyebrow at him, then said, "...Sir, yes sir." She left, shutting the door behind her.
+
+And within the hour, they were climbing into their VTOL in full military gear. They'd arrive around midnight, so they had their NVGs on once again, ready to be flipped down in a moment's notice. Kellien had also ordered Cisila to bring a crowbar and entry tools, so her backpack was full of them, along with the extra ammo magazines and backup backup pistol she had. Her usual pistol of choice, the SOCOM MK.23, was holstered in her dropleg holster. It was an old gun, and not one she was supposed to have, but she couldn't be bothered to use a newer one. She had also swapped out her sniper rifle for a much more blunt Benelli M1014 shotgun, as from the plans they were given, the squad knew they'd be indoors much more than outside, so having a sniper rifle wasn't exactly smart. As she climbed into the VTOL, she made sure she had everything else she needed on her combat vest. Knife, check. Radio, check. All the ammo pouches...of course. Her helmet was on properly, everything was connected. She took a seat next to Kellien and strapped herself in.
+
+"This is a big one, Six." Kellien said. Cisila nodded, "I really don't think we're getting out of this one." 
+
+"No," Kellien shook her head, "We will."
+The VTOL erupted to life, and the rotors began to spin. She looked around at the rest of the squad, who were fiddling with their vests to try and make the seatbelts more comfortable.
+
+And suddenly, they lifted off into the sky, and were flying towards Nevada.
+She tried to lean out to one of the open doors to get a look at the base as they were flying away, but she couldn't see it in the darkness.
+
+*Not like it was home anyways.*
+
+-
+
+
+
+# 6
+### NEVADA, U.S.A
+### MILITARY HEADQUARTERS, NICKNAMED "DOLPHIN"
+### 19:39, MILITARY TIME
+### JULY 20TH, 20XX
+#### ?
+
+He was sitting in the floor in a dark room, messing with a glob of *something* that he'd made. 
+
+It was important to make sure the personnel he'd infected would stay that way, and it seemed like this would do it. An organism with a few legs, an eye, that'd do it. It just needed to latch onto the person's chest and find their heart. Then it would be under control. Not even the military would stop him at this rate, no matter how hard they tried. He put the glob down (he really should name some of these things) and watched it skitter into a nearby vent, sliding through the grates like they were nothing.
+
+There was only one way this would end, he knew, and now that he couldn't kill Palmer (at least somebody had done it...) he'd go straight to the top. The entire government was at fault, of course. Not to mention the fact that they smothered out any news concerning these "superpowered people" they called them. Any mention was reduced to, "they're just humane experiments". But that was wrong. Oh, that was so incredibly wrong. He got up, limped over to a computer, and searched through it. *Where was it...* He thought to himself. He opened a file containing every U.S citizen reported to have powers. He scrolled through them slowly, and noted down that most of them were deceased. Most of them, in fact, had been enlisted. Into a classified squad system built to kill Enhanced people by throwing them into combat without any experience. He also knew that there were only three of those teams left...two were new, but one...one was strange. One had succeeded at almost every mission they had done, like they had actual military experience. The missions were still suicide, but they made it out. He wondered if they'd send this strange squad after them. He snorted to himself, *And then what? Throw them in the sea?* 
+
+Perhaps he could convince the squad to help him. They'd understand...at least one of them had to be an experiment done by Palmer, right? It was statistically likely...there had to be one. *There could be someone here that has the other half of this ability...the non-living one.*
+
+He flexed his arms. He could feel the strange fleshy part of his abilities residing under his muscles. He wondered what it would be like to have the other ability. To be able to create weapons out of thin air...if that was one of these people, he'd convince them. He always did. And if they didn't agree...well, he couldn't turn them into a zombie. That sapped any of their abilities out. 
+
+But there was absolutely no way they'd blindly follow the military. There was *no* way they wouldn't want to help, he knew this. They wanted to use their powers freely, obviously, and he would *give* them that. 
+
+*But what if they're here to kill you? What if they don't care?* A corner of his mind whispered.
+
+He crossed his arms and stared at DELTA squad's dataset. He'd just have to kill them. Easy enough.
+
+-
+
+# 7
+### NEVADA, U.S.A
+### 22:04, MILITARY TIME
+### JULY 20TH, 20XX
+#### SGT. CISILA SIVETA, 24
+
+
+It had taken a while, but they had finally entered Nevada. Cisila swore the sound of the rotors wasn't even there anymore, just bouncing around in her skull like an annoying bug. Through the darkness, she had spotted other VTOLs flying next to them. She always wondered why the army was using VTOLs. They were slow, and these particular models were inefficient. She guessed it made paratroopers' jobs easier, but that didn't really seem like a good reason. Whatever. She shook her head to herself, and looked around the VTOL.
+
+The plan was to drop out of it - they had parachutes on. She wasn't exactly sure how this was a good idea, but then again, landing and disembarking was worse, probably. If the general was telling the truth, then hundreds of zombie-things would probably be waiting for them the moment they landed. Dropping onto a roof and getting inside was quieter. Easier, probably. The hard part was jumping out. She *hated* jumping out of a moving object. But there wasn't exactly another option, she told herself. She breathed in slowly, and breathed out. Kellien seemed to catch Cisila's anxiousness rising, and nudged her shoulder. "You'll be fine. Even if something goes wrong, I know I can trust you to dig yourself out of it." Cisila nodded, and cracked a rare smile. Kellien always had a way of cheering everybody up, even if she was scary sometimes. Their radios suddenly sputtered to life, and the pilot said, "We're almost at the LZ. Reminder to get ready in about...five." Everybody nodded, but didn't get up. Then, the pilot continued, "Try to land on the- huh?" He paused for a moment. "Oh, for the love of-" then one of the other VTOLs that Cisila could see out of the side burst into flame. 
