@@ -143,7 +143,7 @@ She tried to lean out to one of the open doors to get a look at the base as they
 
 # 6
 ### NEVADA, U.S.A
-### MILITARY HEADQUARTERS, NICKNAMED "DOLPHIN"
+### MILITARY BASE "DOLPHIN"
 ### 19:39, MILITARY TIME
 ### JULY 20TH, 20XX
 #### ?
@@ -176,3 +176,27 @@ He crossed his arms and stared at DELTA squad's dataset. He'd just have to kill 
 It had taken a while, but they had finally entered Nevada. Cisila swore the sound of the rotors wasn't even there anymore, just bouncing around in her skull like an annoying bug. Through the darkness, she had spotted other VTOLs flying next to them. She always wondered why the army was using VTOLs. They were slow, and these particular models were inefficient. She guessed it made paratroopers' jobs easier, but that didn't really seem like a good reason. Whatever. She shook her head to herself, and looked around the VTOL.
 
 The plan was to drop out of it - they had parachutes on. She wasn't exactly sure how this was a good idea, but then again, landing and disembarking was worse, probably. If the general was telling the truth, then hundreds of zombie-things would probably be waiting for them the moment they landed. Dropping onto a roof and getting inside was quieter. Easier, probably. The hard part was jumping out. She *hated* jumping out of a moving object. But there wasn't exactly another option, she told herself. She breathed in slowly, and breathed out. Kellien seemed to catch Cisila's anxiousness rising, and nudged her shoulder. "You'll be fine. Even if something goes wrong, I know I can trust you to dig yourself out of it." Cisila nodded, and cracked a rare smile. Kellien always had a way of cheering everybody up, even if she was scary sometimes. Their radios suddenly sputtered to life, and the pilot said, "We're almost at the LZ. Reminder to get ready in about...five." Everybody nodded, but didn't get up. Then, the pilot continued, "Try to land on the- huh?" He paused for a moment. "Oh, for the love of-" then one of the other VTOLs that Cisila could see out of the side burst into flame. 
+
+Kellien sighed, strangely unconcerned. "Great." She muttered. The pilot spoke once more, "Looks like our zombie friends got hold of some jets. I've no idea why I'm so calm about this, but hold on to your horses." Cisila was glad to hear that the pilot felt calm aswell. Something was...incredibly off. It felt like the air was calm, everything was calm...which it obviously SHOULDN'T BE, her head yelled at her. So WHY was she so calm? "Shit...okay...missile inbound - releasing flares." Then there was a pause.
+
+"The- the button's stuck."
+
+Kellien swore loudly, and tried to get up. It seemed like she was fighting the calmness, but it didn't work. She leaned back dejectedly, seeming to accept that they were about to get shot down. Cisila couldn't think clearly, it felt like her mind was trying to wade through a bog. 
+
+And then suddenly, the missile hit. She missed what happened next, but she felt the VTOL spin uncontrollably and then...stop. And then it went dark for a few moments.
+
+
+Then there was a creak. A snap. And the strangest sound of dripping. Her eyes flicked open. She was lying sideways. Her mind immediately kicked into gear - the calmness had disappeared. She struggled to get the seatbelt off, and climbed up. Nobody else was in the VTOL except...she gasped. Five was still in his seat, hanging from the other side of the VTOL, now the ceiling. A large piece of shrapnel had pierced right where his biggest wound from Africa was. She flicked on her radio, but found that it wasn't working. It seemed to have gotten hit by something in the crash. She tugged it off her vest and reluctantly looked up at Five's body, where his radio was still attached. She reached up and tore it off his vest. She shook her head, and couldn't bear to look at Five's corpse any longer. She turned away, and felt the VTOL creak under her feet. She realized a couple things: one, light was shining through the VTOL's doors. It was the morning. How long had she been out for? Why had Kellien not taken her? Two...the VTOL was balancing on the cliffside. Her heartrate immediately spiked, *IhavetogetoutIhavetogetoutIhavetogetout*, her mind started repeating. She clambered towards the doors facing the cliffside as the VTOL lurched to the side. 
+
+She felt her boots lose grip as the aircraft slipped off the cliff. Without a second thought, she leaped out and landed on a small outcropping on the cliffs. And, with immense sadness, she heard the VTOL crash and explode below. That was Five gone...assuming the rest weren't dead. She sat up and leaned against the rough orange rocks that made up the cliff. Here, the intense sunlight burned down on her, and she realized she'd been cut a few times. The most notable one went right across her nose, and it was a miracle it didn't injure her eye. She felt through her vest and couldn't find any bandages or a sewing kit, so she couldn't close the wound for the time being.
+
+For now, she'd have to scale the cliff. Luckily for her, they usually carried rappelling gear for situations like this. She pulled her backpack off and rummaged through it, pulling out the grapple gun she had. She pulled her bag back on, and got up. She felt the rocks crunch under her combat boots as she moved carefully towards the least rocky place to climb up. She scanned the top of the cliffs (She noted that it looked very far away...) and held up the grapple gun. Pulling the trigger, she felt a small click and heard the rope *thwip* out of the gun, and watched it go all the way up and hook onto something at the very top. She sighed. Thank God there was something up there. She attached the rope to her vest and heaved herself up. Putting her feet against the rocks as she climbed gave her more stability, and used less of her energy. Slowly, it became more like an exercise, and she forgot where she was. Cisila looked back out at where the VTOL fell, and remembered the time her father took her rock climbing. She was 12. It was much simpler back then...but at least the view here was nothing short of amazing. She could spot the dam that powered the military facility miles away, and realized how high up she was. It was a *miracle* she lived. She wasn't going to waste her time, so she continued to climb. It felt like an eternity of careful steps, tugging herself up, and sweating. A lot of sweating. If she lived, she thought she'd give herself a long shower. Preferably cold, at the moment. 
+
+when she reached the top, she climbed up and just laid there for a second. When she realized she was in the middle of a warzone, she sat back up and unhooked the rope. It had attached to a security fence that was half destroyed. She knew she'd felt the rope move a couple times, but she hadn't realized that if she was any heavier, she would've fallen to her death. Today kept getting worse. Five dead, herself almost dead, herself almost dead *again.* And to think a couple days ago she thought she'd be fine. She got up, stowed the grapple gun back in her backpack, and unholstered her pistol. She checked her watch as she begun to move, it was...
+
+# 8
+### NEVADA, U.S.A
+### MILITARY BASE "DOLPHIN"
+### 09:56, MILITARY TIME
+### JULY 21ST, 20XX
+#### SGT. CISILA SIVETA, 24
