@@ -171,8 +171,8 @@ He crossed his arms and stared at DELTA squad's dataset. He'd just have to kill 
 ### 22:04, MILITARY TIME
 ### JULY 20TH, 20XX
 #### SGT. CISILA SIVETA, 24
-#### https://open.spotify.com/track/127ngFx9fbYeo7A3BRl2JR?si=d31061fd077648f9
 #### Surface Tension 2 - Joel Nielsen - Black Mesa Soundtrack
+#### https://open.spotify.com/track/127ngFx9fbYeo7A3BRl2JR?si=d31061fd077648f9
 
 It had taken a while, but they had finally entered Nevada. Cisila swore the sound of the rotors wasn't even there anymore, just bouncing around in her skull like an annoying bug. Through the darkness, she had spotted other VTOLs flying next to them. She always wondered why the army was using VTOLs. They were slow, and these particular models were inefficient. She guessed it made paratroopers' jobs easier, but that didn't really seem like a good reason. Whatever. She shook her head to herself, and looked around the VTOL.
 
