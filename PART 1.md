@@ -1,7 +1,7 @@
 # 1
 ### CHICAGO, ILLINOIS, U.S.A
 ### 7:44PM, CST
-### SEPTEMBER 29TH, 20XX
+### SEPTEMBER 29TH, 2033
 #### CISILA SIVETA, 24
 ##### https://open.spotify.com/track/0gdeQ6Qalgdzg5lniSzTG0?si=c2df61e6fb554f7c
 ##### Mind As Universe - We Are Magonia - Ghostrunner 2 Soundtrack
@@ -28,8 +28,38 @@ The man in the SUV took another shot and got her in the shoulder. She dropped th
 
 The pain had suddenly set in, and her shoulder felt like it was screaming. She leaned against the building she had climbed down on, and realized her mask was still on. She pulled her hood further up, and in pain, limped into an alleyway. Pulling her mask off and putting it into her (soaked) satchel, she breathed in and out slowly. Now her face was visible again, her wine-colored eye set on a rather pale face with a set of freckles going down her nose and under her eyes. The right side of her face was covered by a large swathe of her dark brown hair, while the rest of it fell behind her head and hugged her neck. She had some of it tied into a strange ponytail that made one think of a pair of sharks. She took a step forward, figuring out where she was, when suddenly her leg gave out on her, and she collapsed into a puddle. *Fuck,* she thought. And everything suddenly fell away.
 
+-
+
 # 2
 ### CHICAGO, ILLINOIS, U.S.A
 ### 2:30PM, CST
-### JULY 1ST, 20XX
+### SEPTEMBER 1ST, 2028
 #### CISILA SIVETA, 19
+
+It had been a week since they took her. A week since they killed her mother, aswell. And now Cisila was back inside her parents' house after a gruelling 48 hours of being tested on like a rat. She was sitting on the couch, and felt her hands shaking. She hadn't stopped feeling *wrong* since they put whatever it was inside of her. It felt like something else was living inside of her, and it was something she *hated.* Cisila wanted to throw herself into the ocean and never come back up. Without her mother, she had no guidance. And the week she had disappeared just had to have been the same week her college started. 
+
+Machines and engineering had always fascinated her, and she'd chosen that college to learn how to become an engineer. And now she couldn't, because of whatever bullshit PALMER-EDEN had just put her through. She felt more frail than a stick, like a gust of wind would kill her. And...she reached up to her face and touched the right side of it. She felt the wires sticking out of the bottom of her right eye, and flinched. It felt wrong. It felt VERY wrong. She knew her eye also looked unnatural, and knew she'd have to cover it. But something like an eyepatch made her cringe, *I'm not a pirate,* she thought. Sunglasses were her next thought, but those would just be rude to wear all the time. *Especially at night,*  she leaned back. *Who wears sunglasses at night?* There was only one thing she could think to do that wouldn't really disturb her eyesight - and it was to grow her hair out and force it to cover the right of her face. But for now, sunglasses would do. She solemnly got up, looking around the house where she grew up. It was sizeable, but she couldn't keep it. She looked down at the floor of the living room and saw the dried blood on the floor. *Is it mine?* She wondered. *Or is it mom's?* She couldn't tell. IN fact, Cisila didn't WANT to be able to tell.
+
+She looked around the empty, ghostly house. It was decorated, but sparsely. Pictures of her parents and herself were on a mantlepiece, and a large painting of her father was hung on the wall opposite the TV. It was her older sister who had painted that...she walked up to it, and looked at the signature. She sighed - her sister had disappeared a couple of years ago, after her father died. She wasn't dead, as she privately knew, but living in another state. She hadn't told her mother about this, because she *knew* her mother would have rooted the whole house up and left, just to be with another family member.
+
+Then, Cisila studied the painting. She missed her father. He had this polite look on his face in the painting, and had a medal pinned to his shirt. She shook her head sadly. The medal was stowed away somewhere in the basement, but she didn't feel like looking for it. She could barely hold it together when she was just *in* the house, let alone looking for something her father had owned. She turned away from the painting and strode across the living room, towards an old phone sitting on a table next to the large, squishy couch she used to sleep on. Picking it up, she dialed her sister's number. She had to get the hell out of this city, at least until she felt better about herself.
+
+The phone rang for a few seconds, before her sister picked up and said in her bored voice, "Sis? That you?"
+
+Cisila nodded, though she forgot she wasn't talking to her sister. "Yes- it's...me. Yeah." Cisila struggled to speak. "You alright? You don't sound too good, gal." Her sister always used to fuss over Cisila. "No..." She was speaking in a loud whisper. "Mom's- mom's dead." There was a brief silence, before her sister broke it. "She's...she's what?" Her sister's tone had immediately changed, from worried to serious. "What happened?"
+
+Cisila made some kind of noise, like a mumble, then responded: "I- can't tell you. I need to get...out of here. You..." She breathed in, "you wouldn't happen to have any- any jobs for me, would you?" She clenched one of her fists. She knew the only way she'd get out of this city was if she took some kind of backwater job, preferably out in the middle of nowhere. She wanted to make sense of this, by herself.
+
+Her sister sighed, "Yes. I've got something. You're lucky, too..." She paused for a moment.
+
+"You up to be a fire lookout?" She finally said.
+
+*A fire lookout?* This job was almost *perfect* for what she wanted. Out in the middle of nowhere, nobody disturbing her. And a friend if she needed one. She felt her body calm down as she heard her sister continue, "You'll be, well, looking for fires. Obviously. In a big lookout. You'll be all alone except for some of the best radio and communication services we have out here."
+
+Cisila continued to calm herself down, and nodded. "Alright," she mumbled. "I'll go."
+
+She said goodbye to her sister, and put the phone down. She was going to go get her motorcycle out of the garage, get her satchel, her laptop, and everything else she needed. Whatever else she didn't need was staying right here.
+
+Except for a couple of things, maybe...
+
+-
