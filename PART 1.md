@@ -33,8 +33,10 @@ The pain had suddenly set in, and her shoulder felt like it was screaming. She l
 # 2
 ### CHICAGO, ILLINOIS, U.S.A
 ### 2:30PM, CST
-### SEPTEMBER 1ST, 2028
+### JUNE 1ST, 2028
 #### CISILA SIVETA, 19
+
+Five years ago...
 
 It had been a week since they took her. A week since they killed her mother, aswell. And now Cisila was back inside her parents' house after a gruelling 48 hours of being tested on like a rat. She was sitting on the couch, and felt her hands shaking. She hadn't stopped feeling *wrong* since they put whatever it was inside of her. It felt like something else was living inside of her, and it was something she *hated.* Cisila wanted to throw herself into the ocean and never come back up. Without her mother, she had no guidance. And the week she had disappeared just had to have been the same week her college started. 
 
@@ -63,3 +65,11 @@ She said goodbye to her sister, and put the phone down. She was going to go get 
 Except for a couple of things, maybe...
 
 -
+
+# 3
+### CHICAGO, ILLINOIS, U.S.A
+### 10:15PM, CST
+### SEPTEMBER 29TH, 2033
+#### CISILA SIVETA, 24
+
+Cisila woke up, still lying in the puddle. The puddle was now dyed a deep red, from her blood. She didn't want to move at all, nervous that she might do more damage to herself. She breathed in, and breathed out, rolling herself onto her back. It was still raining, as raindrops fell on her face. Her clothes were still drenched- though her exoskeleton had disappeared. She blinked a couple times, and became aware of the ringing in her eyes. She couldn't feel the injuries, nor could she feel *anything*. She was just lying there.
