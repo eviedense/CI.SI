@@ -1,4 +1,5 @@
 # 1
+# BUSINESS AS USUAL
 ### CHICAGO, ILLINOIS, U.S.A
 ### 7:44PM, CST
 ### SEPTEMBER 29TH, 2033
@@ -31,6 +32,7 @@ The pain had suddenly set in, and her shoulder felt like it was screaming. She l
 -
 
 # 2
+# ALONE
 ### CHICAGO, ILLINOIS, U.S.A
 ### 2:30PM, CST
 ### JUNE 1ST, 2028
@@ -67,6 +69,7 @@ Except for a couple of things, maybe...
 -
 
 # 3
+# JOSERTÉ
 ### CHICAGO, ILLINOIS, U.S.A
 ### 10:15PM, CST
 ### SEPTEMBER 29TH, 2033
@@ -91,6 +94,7 @@ It was just...they led some kind of (she thought for a moment, trying to find th
 -
 
 # 4
+# UNEXPECTED ALLY
 ### CHICAGO, ILLINOIS, U.S.A
 ### 01:02AM, CST
 ### FEBRUARY 10TH, 2030
@@ -116,6 +120,7 @@ And so started Cisila's only relationship that actually mattered. It was like a 
 -
 
 # 5
+# DAY IN, DAY OUT
 ### CHICAGO, ILLINOIS, U.S.A
 ### 6:01AM, CST
 ### SEPTEMBER 30TH, 2033
@@ -139,4 +144,15 @@ She finally got to the library at about seven, and pushed open the doors. Immedi
 
 "Tired?" Someone suddenly said to her. Cisila made a strange squeak indignantly and looked around for the owner of the voice. Lyla was leaning against a doorway, already in her work stuff. *How did she get here before me?!* "I-" Cisila started, "I- uh- ...yes?" her eyes had gone wide. "But how'd you-" Lyla shook her head, "I'm just faster than you, I guess." Huh? Did she GUESS what she was thinking? Or was she a MIND READER? *CAN LYLA SEE MY THOUGHTS???????* Her mind very RELUCTANTLY began playing a film of VERY EMBARRASSING thoughts before she forced it to shut down. *No, of course not.* She blinked. Lyla was looking at her weird, "You really should get, like...a coffee or something. You look like you died." Cisila rubbed her eye, and nodded. "I'll be fine...just don't make me do anything that requires any effort." Lyla rolled her eyes, "This is the third time this week you've shown up like this. I can't just keep letting you sit around and yawn, y'know." Hm. Lyla *was* right. Maybe doing something more productive would wake her up more... "Nevermind- nevermind." Cisila mumbled. "I can sort through the books and check the log if you want." Lyla waved her hand at Cisila, dismissively. "Nah. You can do whatever you feel like, because it doesn't really matter today." Cisila felt her brow furrow in confusion. "...Why?" She asked. Lyla didn't usually let anyone off. "Well-" Lyla started, and sat down next to Cisila- who felt herself stiffen. "I know you've got something else going on, and I don't want overexert you." Cisila stared at Lyla, extremely confused... "I...think I'm still going to go sort books. I need something to...uh...do." Cisila jumped onto her feet and went to exit the room. "Oh." Lyla sounded disappointed. "Alright then." 
 
-Cisila quickly left the room and her mind was swimming with thoughts. *Did I just make her sad? What did she want?* As she started sorting through the books, all she could think about was Lyla, Lyla, Lyla. She barely thought about her own boyfriend anymore- not that you could really call him one. Seemed like they were more like vague acquaintances who pretended to be dating. *Mikhail,* Her mind whispered. *Wonder what he's up to right now.* She paused and pulled out her phone, but saw no messages from Mikhail. She frowned, and put her phone away before continuing to sort through the books.
+Cisila quickly left the room and her mind was swimming with thoughts. *Did I just make her sad? What did she want?* As she started sorting through the books, all she could think about was Lyla, Lyla, Lyla. She barely thought about her own boyfriend anymore- not that you could really call him one. Seemed like they were more like vague acquaintances who pretended to be dating. *Mikhail,* Her mind whispered. *Wonder what he's up to right now.* She paused and pulled out her phone, but saw no messages from Mikhail. She frowned, and put her phone away before continuing to sort through the books. Suddenly, after what felt like several hours of sorting, she felt someone nudge her shoulder playfully. Cisila jumped from shock and whirled around to face whoever it was (she was TERRIFIED that it was Lyla) but she instead saw someone keel over in laughter- Cisila's expression dropped from shock to a blank-faced *"goddamnit"* look. It was Kasey- who stood back up and shook her head, still giggling. "Jumpy today?" She mumbled between giggles. Cisila stared at her, still blank-faced. "Little bit." Cisila mumbled. Kasey's giggles finally subsided and she leaned against a table. "Don't worry about it, your secret's safe with me." Cisila felt her lip twitch but rolled her eyes, pretending not to know what this 'secret' was. 
+
+Instead, Cisila shifted the conversation. "What are you doing here so early?" Usually, Kasey showed up around lunchtime. "Oh," Kasey started. "Couldn't sleep, so I thought I'd show up early." Cisila slowly nodded, "I couldn't sleep either." Kasey shook her head, and her poofy hair shook with it. It was tied up into a high ponytail, and a pair of sunglasses stuck out of her hair, which Cisila never saw her wear. "I get it - I mean, you..." Kasey stared at Cisila for a moment, "...you really look like shit." Cisila let out a small giggle, "Got a lot on my mind." That was true. Cisila didn't have to say *what* was going on, but she wasn't lying. Kasey smiled, nodding. "You always do, don'tcha?" Kasey patted Cisila's shoulder, "I'd tell you to focus on your job, but you uh..." she glanced at the stacks of books, "...seemed to have finished already. You should go find Lyla, yeah?" Cisila nodded. "Don't know if it's-" She started. Kasey clapped a hand over Cisila's mouth. "Nuh uh," she said. "You'll live. Lyla isn't going to murder you for having a teeny crush on her." Cisila guessed she was right, and dejectedly took a step back. "Alright..." She mumbled. Kasey leaned in a *little* bit closer, and muttered, "See you after work?" Cisila's eyes brightened a bit. Something to do! She nodded. "Come get me at my apartment. I'll pack my stuff." Kasey smiled, knowing what she meant. She patted Cisila's shoulder again and walked off, probably to go put the books back on the shelves. 
+
+Cisila turned away and headed down the hallway and towards Lyla's office. 
+
+# 6
+# SWEETHEART
+### CHICAGO, ILLINOIS, U.S.A
+### 9:10AM, CST
+### SEPTEMBER 30TH, 2033
+#### CISILA SIVETA, 24
