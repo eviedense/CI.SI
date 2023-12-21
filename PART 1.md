@@ -29,7 +29,7 @@ The man in the SUV took another shot and got her in the shoulder. She dropped th
 
 The pain had suddenly set in, and her shoulder felt like it was screaming. She leaned against the building she had climbed down on, and realized her mask was still on. She pulled her hood further up, and in pain, limped into an alleyway. Pulling her mask off and putting it into her (soaked) satchel, she breathed in and out slowly. Now her face was visible again, her wine-colored eye set on a rather pale face with a set of freckles going down her nose and under her eyes. The right side of her face was covered by a large swathe of her dark brown hair, while the rest of it fell behind her head and hugged her neck. She had some of it tied into a strange ponytail that made one think of a pair of sharks. She took a step forward, figuring out where she was, when suddenly her leg gave out on her, and she collapsed into a puddle. *Fuck,* she thought. And everything suddenly fell away.
 
--
+
 
 # 2
 # ALONE
@@ -66,7 +66,7 @@ She said goodbye to her sister, and put the phone down. She was going to go get 
 
 Except for a couple of things, maybe...
 
--
+
 
 # 3
 # JOSERTÉ
@@ -91,7 +91,7 @@ And then, another painful hour later, now wrapped up in bandages, Cisila was sip
 
 It was just...they led some kind of (she thought for a moment, trying to find the right word) brotherhood. She never understood why Dani led it, or why it was even a thing. She always worked alone, and it usually went well for her. She shook her head to herself, *was it really the best idea, though?* She quickly pushed that thought out and sipped her tea again. 
 
--
+
 
 # 4
 # UNEXPECTED ALLY
@@ -117,7 +117,7 @@ Cisila mumbled, "Didn't...mean to do...any of that." Especially the fire. She wa
 But there was no stopping Dani- and after, they talked. Dani learned of Cisila's story, and invited her to work with their...brotherhood. Or whatever the hell it was. 
 And so started Cisila's only relationship that actually mattered. It was like a master, and a student. Vaguely. It really didn't matter.
 
--
+
 
 # 5
 # DAY IN, DAY OUT
