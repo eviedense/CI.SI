@@ -209,7 +209,7 @@ The yelling was coming from behind them. Someone had found them right at the sce
 Was it the police?
 
 # 7
-# RAVEN CLAWED MADNESS
+# RAVEN TALONED LUNACY
 ### CHICAGO, ILLINOIS, U.S.A
 ### 12:31AM, CST
 ### SEPTEMBER 31ST, 2033
