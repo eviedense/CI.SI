@@ -91,14 +91,7 @@ And then, another painful hour later, now wrapped up in bandages, Cisila was sip
 
 It was just...they led some kind of (she thought for a moment, trying to find the right word) brotherhood. She never understood why Dani led it, or why it was even a thing. She always worked alone, and it usually went well for her. She shook her head to herself, *was it really the best idea, though?* She quickly pushed that thought out and sipped her tea again. 
 
-
-
-# 4
-# UNEXPECTED ALLY
-### CHICAGO, ILLINOIS, U.S.A
-### 01:02AM, CST
-### FEBRUARY 10TH, 2030
-#### CISILA SIVETA, 21
+-
 
 Three years ago...
 
@@ -119,7 +112,7 @@ And so started Cisila's only relationship that actually mattered. It was like a 
 
 
 
-# 5
+# 4
 # DAY IN, DAY OUT
 ### CHICAGO, ILLINOIS, U.S.A
 ### 6:01AM, CST
@@ -150,7 +143,7 @@ Instead, Cisila shifted the conversation. "What are you doing here so early?" Us
 
 Cisila turned away and headed down the hallway and towards Lyla's office. 
 
-# 6
+# 5
 # SWEETHEART
 ### CHICAGO, ILLINOIS, U.S.A
 ### 7:20PM, CST
@@ -187,7 +180,7 @@ But it made her feel even *worse* when Lyla leaned into Cisila and RESTED HER HE
 
 But in her head, she was *so, so* thankful. It was like they had lifted each other up.
 
-# 7
+# 6
 # KASEY
 ### CHICAGO, ILLINOIS, U.S.A
 ### 12:01AM, CST
@@ -200,4 +193,24 @@ Oh, dear. They had fallen asleep together. Oh *no,* that was incredibly embarras
 
 Once she was back with Kasey, she held a finger up at Kasey to indicate she needed another moment. She picked up a pencil off the coffee table and a stack of sticky notes, and wrote on the sticky note: "I'm out. I'll swing by the library later - C", and stuck it to Lyla's forehead. *She looks cute,* her mind thought randomly. UGH. She walked back up to Kasey, "Alright. She said. "Good to go. You ready?" Kasey smiled and nodded, "Let's get outta here." They climbed through the window one by one, and Cisila shut (and locked) the window after they climbed out. As soon as she turned to face the street, she felt colder. It was the final day of September, she realized. It was going to continue to get colder...and soon enough, it would probably snow.
 
-But that didn't matter right now. As soon as they reached the roof, they paused. "...Now what?" Cisila asked. Kasey sighed. "Yeah, I dunno..." She put her hands on her hips, looking around at the city that surrounded them. "Could go for a run." That was what they usually did; Chicago had a lot of tall buildings that the two of them could easily climb up or through. Neon signs littered the skyscrapers and cars rumbling along could be heard in the streets down below.
+But that didn't matter right now. As soon as they reached the roof, they paused. "...Now what?" Cisila asked. Kasey sighed. "Yeah, I dunno..." She put her hands on her hips, looking around at the city that surrounded them. "Could go for a run." That was what they usually did; Chicago had a lot of tall buildings that the two of them could easily climb up or through. Neon signs littered the skyscrapers and cars rumbling along could be heard in the streets down below. "A run..." Cisila repeated. She nodded, turning around to look for a path. "We can do that." Kasey cracked a smile, and immediately broke into a sprint straight for the edge of the building. "Hey!" Cisila yelled, lunging forward and sprinting after her. "You're not gonna win!" Kasey leaped off the edge of the building first, flying through the air over to the next rooftop. Cisila jumped aswell, feeling her muscles strain as she leaped. She landed feetfirst and stumbled for a moment before continuing to run after Kasey. Her satchel bounced up and down against her hip as she ran, putting her slightly off balance. Kasey was just a few paces ahead of her, and seemed to have a path in her head. Suddenly, Kasey was sliding under and vaulting over obstacles in their path - be it vents or A/C units. Cisila instead chose to duck around the obstacles - she hated having to jump over things. They two continued to run across the rooftops for a few minutes, before Kasey slid to a stop at the edge of yet another apartment building. Cisila slowed down and stopped next to her, catching her breath. Kasey was staring at something in the alleyway below. Clutching the stitch in her side, Cisila peeked over. What met their eyes was a devastating scene.
+
+The alleyway was quiet. But there were streaks of blood running along the walls and the ground, up to a body. A body that was mangled horribly- twisted the wrong way...and from their vantage point, it looked as though the body had been torn open. Kasey shuddered as she seemed to notice. "Who...did this?" Cisila kneeled down to try and get a closer look. Her mind had sprung into action- her first thought was that it wasn't a person- no human was capable of tearing a person apart like that. But then, what WOULD have done it? No animal could have done that, either. None living in Chicago, at least. Then she looked up, realizing something. "Kasey," She said. "Where are we?" Kasey looked around for a moment- and Cisila realized that they'd ran pretty far. "I think...near the West Loop." Kasey said. Immediately, Cisila stood up (*ouch-*) and sputtered, "We should move. We can't-" Kasey clapped a hand over Cisila's mouth, "I think we should at least get a closer look, right?" Cisila aggressively shook her head. It was dangerous to go near the body now that they had figured out where they were. "Well, let's go then!" And Kasey dropped right off the edge of the building. Cisila's heart dropped before she remembered-
+
+Kasey landed fine. Cisila followed her right down, as she knew that heights couldn't hurt her either. She felt a mechanical *buzz* that ran up through her legs from her feet as they slammed against the ground. Inside her, the mechanical exoskeleton absorbed all the forces. She shuddered. The ambience in the alleyway was much worse than it was above. Only a weak set of lights lit the alleyway. The body was lying against a dumpster, in a pool of drying blood.
+
+The two approached it slowly. Now much closer, they could see- something strange had happened. The corpse hadn't just been torn open, but...organs were *missing.* And some bones too- Cisila noticed the corpse's entire ribcage was missing. She looked up at the face, hoping it could be identified. Whoever had done this had also smashed the victim's face in, making them unidentifiable. As she got as close as she dared, she wondered...what had made the killer take a set of organs, and even more strangely...the ribcage? Kasey shook her head, sighing. "This doesn't make any sense..." Cisila knew she must have noticed the same things. Stepping back from the corpse (she had just caught the smell of it...) and crossing her arms, she scanned the corpse with her eyes one last time. No definitive modus operandi, unless you counted tearing apart a victim one. The only strange thing, again, was the missing organs. The smashed in face. Someone knew what they were doing, but Cisila couldn't figure out *what.* 
+
+After a few seconds of silence, Kasey spoke. "It kind of seems like someone murdered this...uh...person to steal their organs. Might be organ trading." Cisila glanced at Kasey. "Organ trading..." Cisila repeated. Then the pieces clicked into place. There were three notorious organized crime gangs in the city. One specialized in organ trading. It would make sense, had it been in the right sector. But it wasn't. "Kasey...I don't think it was them." She said. Kasey stared at her, confused. "It's not their turf. They wouldn't dare touch the Serpents' turf, would they? Nobody would. It'd cause a..."
+
+"...A gang war." Kasey finished for her. Questions filled Cisila's head again- was this on purpose? Or perhaps, some horrible accident? Was it even someone in one of the gangs? Or was it someone who wanted everything to go to hell? Or maybe...just maybe...it was a terrible coincidence. Just as she was trying to fit the pieces together in her head, she heard yelling. She perked up and look at Kasey again-
+
+The yelling was coming from behind them. Someone had found them right at the scene of the crime.
+Was it the police?
+
+# 7
+# RAVEN CLAWED MADNESS
+### CHICAGO, ILLINOIS, U.S.A
+### 12:31AM, CST
+### SEPTEMBER 31ST, 2033
+#### CISILA SIVETA, 24
