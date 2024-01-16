@@ -21,17 +21,66 @@ And then there was Mikhail. At first, Cisila felt a connection. They decided to 
 
 She would eventually find out. And meet someone who she *really* had a connection to.
 
-# [ - END - ]
-
+-
 
 ## LYLA SILVERMANN
 ### Age: 27 (as of 2033) - Born on October 31st, 2006 
 ### Residence: Chicago, Illinois, U.S.A
-#### Theme: https://open.spotify.com/track/264qDQ2c4dMxIRbku7PN8E?si=fe882dbbef254597
-#### 'Vendetta' - FreQuency - Armored Core Verdict Day
+#### Theme: https://open.spotify.com/track/29eKlSdk4dmwBgqtwASiFW?si=59d4dc3eba0141da
+#### 'A Stranger I Remain' - Free Dominguez - Metal Gear Rising: Revengeance
 
-Lyla Silvermann is lost. She doesn't think she deserves to live.
+Lyla Silvermann is lost. She's not sure if she should be alive.
 
-Her parents use her like a weapon. She *is* a weapon, practically. Back in Finland, she was an assassin. If you could call her one- she wasn't exactly subtle.
+Her parents used her like a weapon. She *is* a weapon, practically. Back in Finland, she was an assassin. If you could call her one- she wasn't exactly subtle.
 
 Ripping her victims apart like they were pieces of thin paper, she'd leave their houses covered in blood. Did she enjoy it? No. But she had to do it- lest her family kick her out and leave her with nothing.
+
+She'd do it again, and again. And every time she would, she'd only get a cut of the money she was paid. The rest went to her family. When she was at home, she was treated like a child, even when she became a legal adult. She couldn't do much about anything- not under the piercing eyes of her family.
+
+But suddenly, on one night when she was out for a job, it all fell apart. She was caught- somehow, some way, her family had been tricked into a setup, and she was thrown in jail. And her family didn't try to get her out. She was left there- for 3 years. Day in, day out, the prison routine degraded her mentally. Even though it was better than her family, it dragged on, and on. At least she'd had her own things in her home, but there, in a prison cell, she only had herself. And something about that scared her. Being able to think for herself with nobody telling her what to think, what to do...it *really* scared her. In the dark corners of her mind, questions popped up. Unanswerable ones. Like, "what did I do to deserve this?" and "What was wrong with mother and father?"
+
+These questions looped around, and around in her head. Every day. For months. Until she only wanted the answers- she'd given up on waiting. Being left alone with herself made her realize that her family was horrible. If they hadn't come to get her, they must have gotten one of her siblings to do the job instead.
+
+She was expendable. She'd thought about the one who'd set her up...who were they? Had they known what her family was?
+The seemingly endless loop of prison had driven her to ask a question that confused her. A *lot.* 
+
+Were they *trying* to save her from her family by getting her intentionally caught? She never met the clients- her father handled that. He hadn't shown any suspicious tendencies, and so she went on the job. So who was he?
+
+That answer came sooner than she'd ever thought it would. When she was finally released- disgruntled, tired, and suspicious of everything...a man approached her. He told her he was her uncle. He explained what he'd done to her, how he knew his brother (her father) had some kind of twisted idea of family. Leading her away from the prison, and towards the unknown, Lyla felt her mind open. There was someone with answers- someone she should know. But there was something she couldn't do, her uncle told her. And that was go back to her family. She'd already figured that out- her time in prison, alone, had already answered that question.
+
+There was only one thing her uncle could help her with, and that was start over. "But where?" She asked.
+
+"America." He answered.
+
+He'd managed to get them a decent ride to America on a ship. She'd wondered why, but decided not to ask. She herself distrusted planes- so maybe her uncle did aswell.
+
+But it wasn't a normal ship- it was an icebreaker. Her uncle explained to her that in order to get out undetected, they would join an icebreaker crew. The captain, one of her uncle's best friends, took them on immediately.
+
+And then...as they were leaving, she felt horrible. She'd thought so much about her family, and why she'd killed people...that she hadn't even given a thought to the ones she *had* killed. There wasn't anything she could do- so she pushed those thoughts away and focused on the ship. She'd learn on the journey how icebreakers operated, get to know the crew- and began to appreciate what these ships did.
+
+But, as if she was misfortune herself, one of the crew members went for her. While she was asleep, someone had entered her cabin. She'd heard the door open and immediately sprang up. Whoever it was dropped their knife- and ran. 
+
+She knew she wouldn't find them, so she waited until the morning- and told the captain. Someone had tried to kill her. And so, the captain interrogated every crew member. But none of them yielded. It didn't seem like any of them had done it. She investigated the entire ship herself- but she, too, couldn't find anything that incriminated any of the crew members.
+
+When she tried to get to the captain- someone stopped her. Her *uncle* stopped her.
+
+It was him, she realized. He'd try to kill her. Why?
+"Your father didn't want you to live." He'd explained. "I wanted to do it somewhere quiet, where nobody would remember you."
+
+And that made her *so* incredibly *angry.* She thought she'd found a way out, but instead, her escape was supposed to be her end. She was so incredibly enraged that something strange happened to her. Out of her hands, two scimitar-like blades appeared. They were made of a strange metal and wood, and she felt something also snake its way up her neck. Her hands were taken over by a strange metal apparatus that seemed to be filled with some strange, glowing green liquid. Needles like pincers could extend and retract from her fingers.
+
+She didn't realize it, but she was an Ultima. And she used these strange powers to butcher her uncle. She'd been betrayed twice, and she didn't want to *ever* feel it again.
+
+When she was done, her uncle's body fell over the side of the ship- and into the ice cold waters of the ocean. 
+
+She turned away, the Ultima abilities disappearing, and felt sick.
+
+Lyla would tell herself not to do something like that again. She finally got to America- and ran. Ending up in Chicago, she managed to build herself up into what felt like normalcy. She hadn't ever known what it was to be normal, but this must have been it.
+
+Her thoughts of her family and her murders hung over her like a shadow. But she ignored them as much as possible. She'd found people to talk to- and began to feel the shadows back away. But whatever she was doing, it didn't feel like *her.* A part of her missed the dark nights where she drove a knife into the heart of a victim. And she couldn't get it to leave.
+
+But every time she was this one girl she worked with, even if it was only for a few seconds, those thoughts would disappear. They'd be replaced by a feeling she couldn't describe- pure happiness.
+
+But then someone approached, and told her if that he didn't work with her...she would be brought back to her family, and killed.
+
+-
