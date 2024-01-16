@@ -23,6 +23,18 @@ She would eventually find out. And meet someone who she *really* had a connectio
 
 -
 
+### CISILA J. SIVETA
+### LIKES - DISLIKES - HOBBIES
+
+Cisila does a lot with her free time. She, most notably, plays electric guitar. It was one of the few things she found herself really enjoying before everything went wrong- and to her, it's an anchor to the present, and what she can do.
+
+She loves collecting trinkets. Things from her favourite movies, shows, and even games. She doesn't play video games often, though, because she never has time.
+
+Cisila really enjoys clothing, especially footwear. She hates having to pick clothes out, though. It's hard for her- because she likes everything in her closet and she feels as though there are too many options. Usually, she just ends up in her usual purple-grey-white pallet.
+
+She would've been an engineer, had her life not fallen apart when it did. Using her engineer knowledge, she's able to build things using Construct. But it's not something she enjoys doing. Ever. It reminds her of what she should've been doing with her life, instead of what she *is* doing.
+
+
 ## LYLA SILVERMANN
 ### Age: 27 (as of 2033) - Born on October 31st, 2006 
 ### Residence: Chicago, Illinois, U.S.A
