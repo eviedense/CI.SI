@@ -96,3 +96,16 @@ But every time she was this one girl she worked with, even if it was only for a 
 But then someone approached, and told her if that he didn't work with her...she would be brought back to her family, and killed.
 
 -
+
+### LYLA SILVERMAN
+### LIKES - DISLIKES - HOBBIES
+
+Lyla manages herself very strictly, a symptom of life with her parents. She doesn't like or dislike anything, and the only hobby she has is reading- the only thing that gives her something to do. It's why she works at the bookstore.
+
+
+## DANI JOSERTE
+### Age: 29 (as of 2033) - Born on June 1st, 2004 
+### Residence: Chicago, Illinois, U.S.A
+#### Theme: https://open.spotify.com/track/6uBQxfWqasAih4Z9GbwNAR?si=f1b094a3c66f4136
+#### 'Vendetta' - Wice - In Search of Darkness
+
