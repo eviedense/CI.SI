@@ -223,4 +223,30 @@ This whole thing had just gotten a lot worse, and before she could even try to c
 
 She took her chance- in her hand, a knife suddenly appeared, folding and clicking together quietly. She drove it through the man's head. In a split second, the gang members shrieked. She snatched up the dead man's pistol and wildly shot it at the three other members that had approached. Throwing it down, unsure if she even hit anything, her blade constructed itself in her hands and she lunged towards the rest, and with one big slash, the three of them fell- cleaved in half. Not good. Not good at all. Now four Serpent members, in addition to the Cobra, had died in this alleyway. It was too dangerous to stay- and Cisila pulled her mask off and climbed up the same fire escape that Kasey had taken. She was gone now, probably back to her own home, and Cisila didn't mind. 
 
-She wasn't sure what she had to do next, as she ran back along the rooftops. The obvious thing would be to go to the police- but she didn't trust them. Not one bit. The last time she tried to go to them about a crime, they ignored her. Worse, they let it get continue. At the time, she had to take care of it herself. And she nearly died. 
+She wasn't sure what she had to do next, as she ran back along the rooftops. The obvious thing would be to go to the police- but she didn't trust them. Not one bit. The last time she tried to go to them about a crime, they ignored her. Worse, they let it continue. At the time, she had to take care of it herself. And she nearly died. 
+
+Cisila felt her phone vibrate in her pocket- someone was calling her. Skidding to a stop, she pulled her phone out and glanced at who was calling her. The screen simply read "Dani". Pulling her mask off, she answered the call. The first thing she heard when she raised the phone to her ear was "V, what the *hell* did you do?!" Dani sounded exasperated. "I-" Cisila tried to begin. Dani steamrolled right over her, "No, no, no. One of my scouts saw you murder a bunch of Serpents right in front of their own damn boss' CORPSE!" Cisila let out a low sigh. "Look-" She attempted to say. Over the phone, she couldn't see Dani's face. But she knew the look they'd give her. "NO." Dani said. "You're going to cause some serious chaos if you don't fix what you just did!" Cisila felt herself flinch and turned on her heel. If Dani was going to keep talking... "Look, I get that you don't like any of the gangs, but-" Cisila finally burst. "I DIDN'T DO A DAMN THING, DANI!" She flung her free arm out in anger. "I FOUND the Cobra right there, like that?! Who the hell do you think I am?" She inhaled sharply. "I don't tear people apart, no matter how evil they are! Are you trying to call me INSANE? And those other thugs-" She let her arm drop and clenched her fist. "They came for me first. It was fair game."
+
+Cisila was met with momentary silence. She heard Dani sigh, and then, "Alright." They started. "You're saying someone else killed the Cobra? How do I know you aren't lying? You were *right* there." Cisila felt a lump in her throat forming. "I didn't-" She sighed. She was beginning to feel sick. "...you know that I..." She paused. She was struggling to put words together. "You know that I wouldn't-" She shook her head, "I wouldn't...try to start a gang war. You *know* I'm not like that!" She was beginning to feel her voice break. *This* was why she could never work with anyone. 
+
+This feeling of anxiety- of sickness, came from having to explain stressful situations- to interact with other people, to make them believe you. "I guess you're right..." Dani said. Cisila kicked an A/C unit, and it let out a *clang*. "I've got to find who did it..." She mumbled. "Before they do it again. I can't-" She inhaled. "I can't let them do this again."
+
+Dani took a moment to respond.
+
+"V...can you describe what the corpse looked like? One of my other scouts has been looking into a widely unknown killing, and it could be connected."
+
+Cisila stopped. How could she have missed a whole killing? Was she paying too much attention to PALMER-EDEN? It happened, of course, seeing that PALMER-EDEN was her only concern. She'd been looped into the underworld of the city by virtue of Dani and couldn't get out of it without abandoning their help. "Well," She started. "What do I have to do?"
+
+Dani sighed. "Well...about that." Cisila groaned. That couldn't mean anything good. "The only *real* info on the killings is stuck in the police department's HQ. And you'll have to sneak in to get it."
+
+That was the *worst* thing she could possibly have to do. But without that information, she wouldn't be able to find the killer, and perhaps stop the gang war before it even began. The gangs were at least a little civil, having meetings...but without one of the three leaders, she thought she'd only have a couple of days before something happened.
+
+"I'll do it." She said.
+
+# 7
+# BREAK IN, BREAK OUT
+### CHICAGO, ILLINOIS, U.S.A
+### 4:01PM, CST
+### OCTOBER 1ST, 2033
+#### CISILA SIVETA, 24
+
