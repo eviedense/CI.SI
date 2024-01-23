@@ -136,3 +136,43 @@ Cisila - Oh. *Cisila looks up at the sky.*  Hm.
 Dani - I've got something for you, actually. *They reach into their jacket and pull out a thin package. They reach over to Cisila and drop it in her laps.*  My dad said you'd want it.
 
 Cisila - Uh... *She picks it up, and turns it over, trying to figure out what it is. She gives up.*  ...Wh- what is it?
+
+Dani - *They tilt their head. They look unconcerned*  Just open it.
+
+*Cisila tears open the package, and shoves her hand in. Her fingers touch a string, and she twines them around it, pulling the thing inside out. She holds it up. It's a necklace.*
+
+Cisila - Huh? *She looks confused. She doesn't need another necklace.*
+
+Dani - *They shake their head.*  Look at it. *They point to the charm that the string is attached to.*
+
+*The charm is pieces of metal banged and welded into a jagged 'V' shape.*
+
+Dani - My dad made it. For the old V. *They sigh.*  Everybody liked her.
+
+Cisila - *She puts the necklace into her satchel slowly. She'll wear it later.*  I don't get it...
+
+Dani - Get what?
+
+Cisila - *She shifts uncomfortably. She's not sure if she wants to ask.*  Why do the names matter? And why give that one to me?
+
+Dani - *They look around for a second, thinking on their words.*  Well...I- I thought you had the same amount of skill as the old one. My dad agreed. It's just...I think nobody likes that you've replaced her. She was like a big sister to everyone.
+
+Cisila - *She leans back against the cold brick wall behind her.*  ...Am I misunderstanding something? I thought you were a makeshift gang.
+
+Dani - No. *They shake their head.*  We're not. We don't steal, and we don't get involved in the Big Three's pointless struggles. We defend the city from anything coming in- not something already in. *They pause.*
+
+*An awkward silence follows.*
+
+Dani - It's why one of the scouts almost went for you the first time you tried to do something. *They settle their hands on one of their knees.*  Anything vaguely foreign puts everyone on edge.
+
+Cisila - But I-
+
+Dani - *They hold a finger up. Shush.*  You were gone from Chicago for months, and when you came back...you were different. That rings alarm bells for us. But you proved yourself when you took down that scout without killing him. 
+
+Cisila - And that was enough for you?
+
+Dani - You... *They sigh.*  You had something going on. I wanted to figure out what it is- my dad did, aswell.
+
+Cisila - I've...never met your dad. Why do you keep mentioning him?
+
+Dani - *They shrug.*  He agrees with me. 
