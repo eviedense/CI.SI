@@ -3,7 +3,7 @@
 ### CHICAGO, ILLINOIS, U.S.A
 ### 7:44PM, CST
 ### SEPTEMBER 29TH, 2033
-#### CISILA SIVETA, 24
+#### CISILA J. SIVETA, 24
 ##### https://open.spotify.com/track/0gdeQ6Qalgdzg5lniSzTG0?si=c2df61e6fb554f7c
 ##### Mind As Universe - We Are Magonia - Ghostrunner 2 Soundtrack
 
@@ -36,7 +36,7 @@ The pain had suddenly set in, and her shoulder felt like it was screaming. She l
 ### CHICAGO, ILLINOIS, U.S.A
 ### 2:30PM, CST
 ### JUNE 1ST, 2028
-#### CISILA SIVETA, 19
+#### CISILA J. SIVETA, 19
 
 Five years ago...
 
@@ -73,7 +73,7 @@ Except for a couple of things, maybe...
 ### CHICAGO, ILLINOIS, U.S.A
 ### 10:15PM, CST
 ### SEPTEMBER 29TH, 2033
-#### CISILA SIVETA, 24
+#### CISILA J. SIVETA, 24
 
 Cisila woke up, still lying in the puddle. The puddle was now dyed a deep red, from her blood. She didn't want to move at all, nervous that she might do more damage to herself. She breathed in, and breathed out, rolling herself onto her back. It was still raining, as raindrops fell on her face. Her clothes were still drenched- though her exoskeleton had disappeared. She blinked a couple times, and became aware of the ringing in her eyes. She couldn't feel the injuries, nor could she feel *anything*. She was just lying there.
 
@@ -117,7 +117,7 @@ And so started Cisila's only relationship that actually mattered. It was like a 
 ### CHICAGO, ILLINOIS, U.S.A
 ### 6:01AM, CST
 ### SEPTEMBER 30TH, 2033
-#### CISILA SIVETA, 24
+#### CISILA J. SIVETA, 24
 ##### https://open.spotify.com/track/0AAMnNeIc6CdnfNU85GwCH?si=484496d2a2a54994
 ##### Self Love - Metro Boomin, Coi Leray - Spider-Man: Across The Spider-Verse Soundtrack
 
@@ -148,7 +148,7 @@ Cisila turned away and headed down the hallway and towards Lyla's office.
 ### CHICAGO, ILLINOIS, U.S.A
 ### 7:20PM, CST
 ### SEPTEMBER 30TH, 2033
-#### CISILA SIVETA, 24
+#### CISILA J. SIVETA, 24
 ##### https://open.spotify.com/track/5wfllwdjglyQislkskYLBv?si=89585fe85bce4917
 ##### Day 'N' Nite (nightmare) - Kid Cudi - Man On The Moon: The End Of Day (Deluxe)
 
@@ -185,7 +185,7 @@ But in her head, she was *so, so* thankful. It was like they had lifted each oth
 ### CHICAGO, ILLINOIS, U.S.A
 ### 12:01AM, CST
 ### SEPTEMBER 31ST, 2033
-#### CISILA SIVETA, 24
+#### CISILA J. SIVETA, 24
 
 Someone was poking her. Probably to get her to wake up. But she didn't *want* to wake up. Nuh uh. But the poking continued, until whoever it was prodded her eye- Cisila jolted upright with a small squeak- "Ow!" She rubbed her eye and blinked, looking up at whoever had poked her. Oh...it was Kasey. She was sitting on the coffee table, clearly waiting for Cisila. "Took you long enough to wake up, huh?" She nodded towards Lyla, who was also asleep on the floor.
 
@@ -213,7 +213,7 @@ Was it the police?
 ### CHICAGO, ILLINOIS, U.S.A
 ### 12:31AM, CST
 ### SEPTEMBER 31ST, 2033
-#### CISILA SIVETA, 24
+#### CISILA J. SIVETA, 24
 
 Cisila immediately dove her hand into her satchel and pulled out her mask- the dim purple glow from the eyes of it stared at her as she lifted it up to her face in a panic. As she pushed it onto her face, she felt it fasten itself to her face. She hated how alive it felt- like it *knew* what it was being used for. After a couple of seconds, her eyesight adjusted to the mask, and she whirled around. Kasey had pulled a scarf up to her nose in an attempt to cover her face. They had just been caught at the scene of a murder, of course. But what was approaching them...clearly wasn't police.
 
@@ -248,7 +248,7 @@ That was the *worst* thing she could possibly have to do. But without that infor
 ### CHICAGO, ILLINOIS, U.S.A
 ### 4:01PM, CST
 ### OCTOBER 1ST, 2033
-#### CISILA SIVETA, 24
+#### CISILA J. SIVETA, 24
 ##### https://open.spotify.com/track/2PZ7g0ZkC9yKL9PvLdTS72?si=6158cef1b29d4863
 ##### Renewed Unrest - SEGA SOUND TEAM - Yakuza Kiwami
 
@@ -279,7 +279,7 @@ The police were coming in. Had they found her?
 ### CHICAGO, ILLINOIS, U.S.A
 ### 4:31PM, CST
 ### OCTOBER 1ST, 2033
-#### CISILA SIVETA, 24
+#### CISILA J. SIVETA, 24
 
 A couple thin police officers strolled into the lobby. She quickly averted her eyes. *Stay calm.*  She thought. *They won't see you if you don't see them.* She started to walk towards the exit, slowly. In her peripheral vision, she saw the officers approach the front desk. "Sorry t'bother ya," One of the officers says to the person at the desk. They look up, unconcerned. "But I thought we'd warn the nearby area, uh...some criminal's runnin' around. Got to some of our officers. Really dangerous."
 
