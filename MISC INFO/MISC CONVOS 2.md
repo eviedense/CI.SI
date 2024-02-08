@@ -88,6 +88,10 @@ Lyla - *She timidly makes her way up to Cisila and grabs hold of her hands quiet
 
 Cisila - *Her eyes flick to the side, and she tries to avoid eye contact.*  I want to get back at them.
 
-Lyla - And you're working on that. You already have it covered. *She lets go of Cisila's hands and cups them around her cheeks instead.*  You're stressed...just- focus. You can't afford to forget all the work you've done.
+Lyla - And you're working on that. You already have it covered. *She lets go of Cisila's hands and cups them around her cheeks instead.*  Okay? You've got to focus. Getting mad...it...doesn't help.
 
 *Cisila's lip twitches again. She looks a little annoyed, again. However, she doesn't move.*
+
+Lyla - *She lets go of Cisila's face and rests her hands on Cisila's shoulders.* You should sit down.
+
+Cisila - *She slides away from Lyla slowly and sits back down on the couch, quietly fidgeting with her fingers.*  Sorry. *She mumbles. She doesn't feel speaking.*
