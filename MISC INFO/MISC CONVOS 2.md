@@ -82,7 +82,7 @@ Cisila - That. That place. *She grinds her teeth.*
 
 Lyla - *Lyla stares at her, concerned.*  I didn't mean to-
 
-Cisila - *She shakes her head.*  No. I get it. I just... *Her pointing gesture clenches into a fist and she drops her arm back to her side.*  They did it on purpose. She didn't just *die.* She was murdered. And I'll prove it.
+Cisila - *She shakes her head.*  No. I get it. I just... *Her pointing gesture clenches into a fist and she drops her arm back to her side.*  They did it on purpose. She didn't just *die.* She was murdered. And I'll *prove* it. *There's a gleam in her eye. She's determined.*
 
 Lyla - *She timidly makes her way up to Cisila and grabs hold of her hands quietly.*  You don't...need to get so mad. I know.
 
@@ -95,3 +95,19 @@ Lyla - And you're working on that. You already have it covered. *She lets go of 
 Lyla - *She lets go of Cisila's face and rests her hands on Cisila's shoulders.* You should sit down.
 
 Cisila - *She slides away from Lyla slowly and sits back down on the couch, quietly fidgeting with her fingers.*  Sorry. *She mumbles. She doesn't feel speaking.*
+
+Lyla - *She sits next to Cisila, crossing her legs.*  What was your family like?
+
+Cisila - *She doesn't respond for several seconds. Pieces are clicking together in her head.*  I- well... *She tilts her head, thinking.*  If they weren't good, I...I wouldn't be sad about it, would I?
+
+Lyla - *She nods.*  Yeah, I guess...I guess you're right. *She thinks of her own family. If they died, she wouldn't feel a thing.*
+
+Cisila - Especially my dad. When he was actually home, he'd...he'd try to make it up. Every time. *She remembers all the small gifts, the trips, and the games.*
+
+*There's a small pause. Both of them are thinking.*
+
+Cisila - My mom was always tired. I was- I was too much for her. *She giggles quietly.* Not only was she important to Palmer, she had to take care of a rowdy child and her sister. *She remembers her sister. Her face falls a bit.* My sister- she...was strange. She inspired me to be an engineer, though. I went to her when my parents died, but then she-
+
+Lyla - *She quietly puts her hand on Cisila's shoulder.*  I know. *She sounds solemn.* You've said it already, you don't have to tell me again.
+
+Cisila - *She swallows whatever words she was about to say, and looks down. She sighs.* Mhm.
