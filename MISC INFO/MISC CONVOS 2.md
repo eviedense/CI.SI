@@ -110,4 +110,44 @@ Cisila - My mom was always tired. I was- I was too much for her. *She giggles qu
 
 Lyla - *She quietly puts her hand on Cisila's shoulder.*  I know. *She sounds solemn.* You've said it already, you don't have to tell me again.
 
-Cisila - *She swallows whatever words she was about to say, and looks down. She sighs.* Mhm.
+Cisila - *She swallows whatever words she was about to say, and looks down. She sighs.* Mhm. *Cisila sounds resigned.*
+
+Lyla - Anybody else in your family? *She leans back into the couch, getting comfortable.*
+
+Cisila - *Looks up at Lyla, and shakes her head.*  No. Well- yeah. *She's accidentally jumbling her words again. She shakes her head.* There's family, but they're just...way down south, and- I despised them, every time I saw them. They were... *She gestures with her hands while trying to figure out what word to say*  ...horrible, I guess. 'Specially my grandparents. Dad's side. 
+
+Lyla - *She raises an eyebrow.*  Why them?
+
+Cisila - ...Cooed over me like I was this- *she snaps her fingers for a few seconds, trying to continue.*  this little princess. *What goes through her mind is memories of every time she had to stay with her grandparents. They aren't pleasant.*  My sister didn't like it. Neither did I. They creeped us out.
+
+Lyla - Urgh... *She makes a face. In her head, images flash through. Given the chance, she'd rip their heads off. Then her mind shuts that down. That's not what normal people do. But she can't stop the images.*
+
+Cisila - My parents knew it aswell. They kept us away from them whenever they got the chance. But my dad folded to them a couple times out of guilty...he could be- kinda soft, sometimes. *She remembers the one time her grandparents visited. Her dad finally relented, and let Cisila and her sister stay with their grandparents for a couple of days. The look of horror on her sister's face still stands out in her mind.*
+
+Lyla - *Lyla spots the change in Cisila's expression. Annoyance? A slight twinge of fear?*  You okay? I didn't think...it'd...
+
+Cisila - *She shakes her head, breaking out of the memory.*  No, it's fine. My sister was...relentless in making sure my grandparents didn't get near me. Thank God, because if anyone let them teach me- I wouldn't be like this.
+
+Lyla - Really? They're *that* kind of bad?
+
+Cisila - No no, no... *She shakes her head again, and smiles.*  They just wanted me to be a certain way. Kinda like they wanted to fix their mistake with Dad. He wasn't happy about that. 
+
+Lyla - Pssht, *She cocks her head,*  bet not. I wouldn't be happy either. That's just admitting your kid's a mistake, isn't it?
+
+Cisila - Yeah. That's when he stopped talking to them. Wouldn't budge from his stance, either, for once...
+
+Lyla - Jeez... *She pulls out her phone and checks it.*  Ah, fuck, I need to go. *She hurriedly gets up and puts her phone away, walking to the door. She scoops her coat off of the coat hanger and pulls it on.*
+
+Cisila - *She gets up,*  Really? 
+
+Lyla - *She buttons the coat up and flaps up the collar to make sure it looks right. She can't look bad.*  Yeah. Not a big deal. 
+
+Cisila - Someone having problems?
+
+Lyla - Yeah. Dan. He's being overwhelmed by being a... *She re-checks her phone.*  a cashier. I don't get that guy.
+
+Cisila - I'll come with. No reason for me to stay. *She yanks her jacket off of the hanger, and pulls it on. She scoops her satchel off the hanger aswell, and puts it on.*
+
+*The two leave, and the apartment door's lock clicks as Cisila locks it behind her. The apartment is left empty, the remaining daylight shining down through the solitary window onto the small table with the old lamps.*
+
+## - 
