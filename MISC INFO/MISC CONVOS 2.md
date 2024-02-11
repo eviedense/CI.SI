@@ -136,7 +136,7 @@ Lyla - Pssht, *She cocks her head,*  bet not. I wouldn't be happy either. That's
 
 Cisila - Yeah. That's when he stopped talking to them. Wouldn't budge from his stance, either, for once...
 
-Lyla - Jeez... *She pulls out her phone and checks it.*  Ah, fuck, I need to go. *She hurriedly gets up and puts her phone away, walking to the door. She scoops her coat off of the coat hanger and pulls it on.*
+Lyla - Jeez... *She pulls out her phone and checks it.*  Ah, *paska*, I need to go. *She splutters, as she hurriedly gets up and puts her phone away, walking to the door. She scoops her coat off of the coat hanger and pulls it on.*
 
 Cisila - *She gets up,*  Really? 
 
