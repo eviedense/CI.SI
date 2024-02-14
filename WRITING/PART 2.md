@@ -23,4 +23,25 @@ The answer was no. Pieces of metal wound by wire creating a strange exoskeleton 
 
 She pulled the window down behind her and locked it, before climbing up the fire escape and onto the rooftops. The rain poured down harder as she leapt across the buildings, following her phone's directions towards Lyla. Bright neon signs flashed by her as she sped past, sliding and vaulting over the messy rooftops. Sprinting at full speed, she leapt off a building, straight over a large intersection. Flinging her left arm out, a strong cable shot out of the grapple device strapped to her arm. It latched onto one of the buildings across the street and she felt herself lurch forward as the cable pulled her towards the building at an alarming rate. She reached out and latched onto the side of the building before the grapple slammed her straight into the side. She flicked her wrist and the cable flew back into the grapple. Shaking her head, she yanked herself onto the roof.
 
-Several minutes later, Cisila finally skidded to a stop on top of a large warehouse with a slanted roof. On the far side, Lyla was crouched overlooking the warehouse. She turned to look back at Cisila when she heard her. "It's in here." She said. Lyla was wearing a rain jacket and had her hood pulled up. She carefully walked along the roof to a skylight, and kneeled next to it. Cisila followed, and knelt right next to her. "Have they done anything weird?" Cisila said, tilting her head towards Lyla. She shook her head, "No. It looks like they're waiting on something."
+Several minutes later, Cisila finally skidded to a stop on top of a large warehouse with a slanted roof. On the far side, Lyla was crouched overlooking the warehouse. She turned to look back at Cisila when she heard her. "It's in here." She said. Lyla was wearing a rain jacket and had her hood pulled up. She carefully walked along the roof to a skylight, and kneeled next to it. Cisila followed, and knelt right next to her. "Have they done anything weird?" Cisila said, tilting her head towards Lyla. She shook her head, "No. It looks like they're waiting on something." Cisila watched the movements of the employees down below. A few questions swirled around her head, but she couldn't give attention to them. Anxiety bubbled in her stomach as she spotted armed guards. It looked they meant business - all black uniforms, bulletproof vests, and helmets with gas masks. *Why do they need gas masks?* She worried. "Okay, well..." She began to say. "Nothing better than to drop down and take them out."
+
+Lyla nodded. Cisila held up a hand at her, "Don't kill the unarmed ones." She said bluntly. "Or the armed guys, either. Unless you really have to." She desperately did not want to deal with more dead bodies lying around. "Alright then," Lyla sighed. On her right hand, a set of sharp claws extended over her fingers and she yanked open the skylight. The window pane flew around its hinges and hit the other one. It smashed against the other window loud enough so that the PALMER-EDEN employees down below looked up in confusion. Before they knew what was coming, Cisila and Lyla dropped down, one after the other, and landed in the middle of the warehouse. Lyla landed on top of a poor man in a labcoat, who went out cold as soon as his head hit the floor. Cisila herself landed fine, but saw the true amount of guards in the warehouse. Whatever they were trying to do, they were serious about it. Lyla backed up to Cisila, seeing the guards aswell, and the two faced back-to-back as the guards slowly walked towards them. They didn't have guns- they had swords. Cisila's brow furrowed as she got into her battle stance, the EXO constructing a set of steel knuckles to protect the skin underneath them. It wound around her hands as she struck her defensive stance, ready to take the first blow. Lyla didn't bother, and instead pulled out her twin daggers, throwing them into the air and catching them.
+
+"Not any further," one of the guards said, clearly a captain, unsheathing his own blade slowly. Its metallic *shing* as it exited the sheathe seemed to echo throughout the warehouse as all the other guards followed suit. 
+
+"Fucking hell," Lyla complained. "Can't this be a little easier, sometimes?"
+
+Cisila made eye contact (or at least, she assumed) with the captain. They tilted their head at Cisila, "This one's gonna hurt. Nobody trespasses on Palmer." They spat. Under her mask, Cisila felt her lip twitch. She wasn't going to let Palmer keep another person in captivity. And a bunch of guys with swords weren't going to stop her. Not even a tank would stop her from preventing Palmer ruining another life. For treating people like products. Usually, she wouldn't say a word...but...
+
+"Oh, it's going to hurt." She spat. "Especially when I break your bones."
+
+The guard immediately lunged at her, raising their blade into the air. "GET THEM!"
+
+# 2
+# ADAM
+### CHICAGO, ILLINOIS, U.S.A
+### 9:40PM, CST
+### April 29TH, 2034
+#### CISILA J. SIVETA, 25
+#### https://open.spotify.com/track/5ztlbmHm1lbJ1GoGB5NMPq?si=a984e17182524083
+#### Soul of the Ogre - Like a Dragon Gaiden: The Man Who Erased His Name
