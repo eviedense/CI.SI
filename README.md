@@ -9,7 +9,7 @@ By night, she dons a strange mask with an ominous aura, and uses her ability **E
 
 # Writing
 
-My (kind of sucky) writing is featured in here, shown through PART 1, PART 2 (soon), PART 3, INTERIM - 2088, and REIGN. These main stories follow Cisila's journey to become not a hero, but a journey to survive. Not everything is black and white, especially not the glorious United States of America.
+My (kind of sucky) writing is featured in here, shown through PART 1, PART 2, PART 3, INTERIM - 2088, and REIGN. These main stories follow Cisila's journey to become not a hero, but a journey to survive. Not everything is black and white, especially not the glorious United States of America.
 
 # Lore
 
