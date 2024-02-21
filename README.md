@@ -17,6 +17,6 @@ There's lots of this. From the main detailed story of Cisila, to random whatever
 
 # Music? What?
 
-In the actual written PART 1, 3, and INTERIM, you can find Spotify links to music. I use music far, far too much as a source for the general vibe. It also helps me think and create scenes.
+In the actual written PART 1, 2, 3, and INTERIM, you can find Spotify links to music. I use music far, far too much as a source for the general vibe. It also helps me think and create scenes.
 
 --
