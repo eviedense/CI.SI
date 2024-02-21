@@ -30,7 +30,7 @@ Cisila does a lot with her free time. She, most notably, plays electric guitar. 
 
 She loves collecting trinkets. Things from her favourite movies, shows, and even games. She doesn't play video games often, though, because she never has time.
 
-Cisila really enjoys clothing, especially footwear. She hates having to pick clothes out, though. It's hard for her- because she likes everything in her closet and she feels as though there are too many options. Usually, she just ends up in her usual purple-grey-white pallet.
+Cisila really enjoys clothing, especially footwear. She hates having to pick clothes out, however. It's difficult for her- because she likes everything in her closet and she feels as though there are too many options. Usually, she just ends up in her usual purple-grey-white pallet.
 
 She would've been an engineer, had her life not fallen apart when it did. Using her engineer knowledge, she's able to build things using Construct. But it's not something she enjoys doing. Ever. It reminds her of what she should've been doing with her life, instead of what she *is* doing.
 
@@ -109,3 +109,18 @@ Lyla manages herself very strictly, a symptom of life with her parents. She does
 #### Theme: https://open.spotify.com/track/6uBQxfWqasAih4Z9GbwNAR?si=f1b094a3c66f4136
 #### 'Vendetta' - Wice - In Search of Darkness
 
+## KASEY ()
+### 24 (as of 2033) - Born on January 2nd, 2009
+### Residence: Chicago, Illinois, U.S.A
+#### Theme: https://open.spotify.com/track/1lNb1Q6BfO1xNf3YoqMhZs?si=1baddbf71d6f43af
+#### 'My Own Style' - SEGA SOUND TEAM - Judgment/JUDGE EYES
+
+A Japanese-American, Kasey came to Chicago looking for something. She met Cisila when she got a job at the Chicago Rose bookstore, and the two became fast friends. Before long, Kasey had divulged to Cisila why she'd come to the city. In Japan, she'd tried to become a detective. It hadn't gone amazingly - but she knew she'd have a chance elsewhere, even if it meant leaving her own home.
+
+And in Chicago, she found her chance. Just like Tokyo, organized crime had made a big return. They weren't yakuza, but they knew what they were doing. Cisila had to deal with them, and when she finally told Kasey what she did, Kasey looked her straight in the eyes, and said, "How can I help?" and that was how she got her way into the underworld. There were a lot of things to see that weren't on the surface of the city- strange murders, deals, but most importantly- a giant underground meeting place for the three gangs. And Kasey understood one thing, when she saw this. Something was wrong- somehow, the gangs were just as organized as the yakuza, yet *ten times* more violent. The meeting place looked like it had been trashed time after time, likely from arguments- and fights. 
+
+And then a man turned up dead. The Chicago Police Department chief. All signs pointed towards it being the fault of one of the gangs. And Kasey took her chance then and there. *This* is how she would prove herself. All she needed to do, was figure out which one of three gangs it was. The Cobras, the Ravens, or the elusive Dragons. Danger awaited her at every corner- evidence pointed to every gang. The cork board she used had become cluttered quickly. Pictures connecting to documents, connecting to *other* pictures, and sticky notes with questions, pointing out inconsistencies, or just plain confused notes.
+
+And then, when she least expected it, her investigation coincided with Cisila's. Cisila had figured out that it *was* the Dragons...and it wasn't the only murder they'd committed. And what confused her even more, was that...their leader died. The leader of the Dragons had been replaced. By a man named Mikhail. Knowing Cisila, she recognized that name. She knew this was *bad,* and had far outgrown the case she'd been investigating. But that sure as hell was not going to stop her.
+
+-
