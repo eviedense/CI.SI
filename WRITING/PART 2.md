@@ -72,3 +72,7 @@ So, there was only one thing she could bring herself to do. And that...was go to
 ### 10:30AM, CST
 ### April 30TH, 2034
 #### CISILA J. SIVETA, 25
+
+Cisila and Dan walked along an empty hallway. They were the only two there- with the only noises around them being the quiet hum of an air conditioning unit. The soft red carpet set along the hallway muffled their footsteps. Cisila didn't have her mask on. She didn't need it- all three gangs knew who she was. Her eyes were locked on the dual doors at the end of the hallway, which they were approaching. Dan was wearing his usual white-gray suit with a white button-up shirt, with his hair tied back into a tight ponytail. At his side, he had a katana linked to his belt, and another strap that went around one of his legs to make sure the katana didn't go anywhere. He still had his sunglasses on- even though he was inside.
+
+Dan's face was expressionless, and through his sunglasses, his eyes were also locked onto the doors. Two men, who looked a little rough around the edges, were standing guard at the two doors. Cisila felt their eyes on her as they walked closer.
