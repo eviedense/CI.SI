@@ -26,6 +26,29 @@ With this style, heads will fall.
 
 -
 
+# CISILA J. SIVETA - OLDER
+
+## VERDICT STYLE
+### Theme: Rolling Eyes Fall Down the Dragon Wall - Yakuza: Like a Dragon
+###
+
+Cisila's refined Vigilante Style, combined with elements of Meteoric Style, now used into her 40s. Now with a gracious amount of swift, Cisila delivers strikes and disarms her opponents. Just like Vigilante Style, she can use her surroundings effectively - she's just not as quick as she was before.
+
+Her strikes hit hard, and her intense actions will break open skulls. But without her EXO at its full strength, she's forced to make use of her swiftness, similar to Meteoric style. She can also use throwing knives - but has no access to her blade or pistol. Fists are the name of the game in Chicago's current climate.
+
+With this style, nothing will stop her. Not this last time. 
+
+## CHAOS STYLE
+### Theme: Reign - Yakuza 0
+###
+
+A style born of anger. It's used only once, when Cisila has finally had enough. The EXO is back at full strength, allowing her to use Construct to its full potential for one last time. It also brings back its defensive capabilities, but much stronger. Everything is off the table when this style reveals itself - including sparing anyone.
+
+Using swift, combined strikes of her fists, her blades, her pistol, everything she has gained over the years - she will tear through anything that gets in her way. Damage (collateral, and to her foes) is immense, as it seems the EXO has finally gained powers unheard of due to Cisila's intense emotions in the heat of the moment. Why this hasn't happened before isn't clear, but it may be because this is the final time the EXO will have with its master. 
+
+With this style, even on the brink of death, nothing gets in your way.
+
+
 # LYLA SILVERMANN
 
 ## ASSASSIN STYLE
