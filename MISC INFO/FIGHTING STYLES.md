@@ -30,7 +30,7 @@ With this style, heads will fall.
 
 ## VERDICT STYLE
 ### Theme: Rolling Eyes Fall Down the Dragon Wall - Yakuza: Like a Dragon
-###
+### https://open.spotify.com/track/28PHLBRyT6cnL56OIvVGiI?si=0f572bcfdc754730
 
 Cisila's refined Vigilante Style, combined with elements of Meteoric Style, now used into her 40s. Now with a gracious amount of swift, Cisila delivers strikes and disarms her opponents. Just like Vigilante Style, she can use her surroundings effectively - she's just not as quick as she was before.
 
@@ -40,7 +40,7 @@ With this style, nothing will stop her. Not this last time.
 
 ## CHAOS STYLE
 ### Theme: Reign - Yakuza 0
-###
+### https://open.spotify.com/track/5pVXt1JRoB6QVitDGmsn3l?si=8147d09fbb084486
 
 A style born of anger. It's used only once, when Cisila has finally had enough. The EXO is back at full strength, allowing her to use Construct to its full potential for one last time. It also brings back its defensive capabilities, but much stronger. Everything is off the table when this style reveals itself - including sparing anyone.
 
