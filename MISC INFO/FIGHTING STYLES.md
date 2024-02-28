@@ -65,6 +65,12 @@ With this style, critical thinking is key.
 ### Theme: Flirt With Bomb - Yakuza Kiwami
 ### https://open.spotify.com/track/3psMG809A14pXzDcDTEs9j?si=8e7084e3d07f4dbf
 
+Lyla's second fighting style, primarily using her superhuman abilities. Two gauntlets with sharp claws form around her hands and become her main weapons- she isn't able to use anything else. With these claws, a variety of strange concoctions can be used which will run along the serrated edges of the claws, and when they come in contact with a foe, can produce a variety of effects. Incredibly fast knock-out serum, fast-acting poison, or something else that disables some mobility. Depending on where the claws cut through, the effect may take shorter or longer to work.
+
+In addition to this, Lyla uses fast moves to dodge around attackers and immobilize them as quickly as possible. Fast slashes combined with swift kicks make this style suitable for several attackers.
+
+With this style, Lyla becomes a blur.
+
 -
 
 # DANI JOSERTÉ
@@ -79,6 +85,16 @@ In intense moments, Dani might take advantage of their surroundings - similar to
 
 With this style, anger is everything.
 
+
+## LIZARD STYLE
+### Theme: Power of Death - LIKE A DRAGON GAIDEN The Man Who Erased His Name
+
+This style focuses primarily on countering and disarming enemies, acting as more of a defensive measures against larger groups of foes. The punches and jabs thrown do little damage, as the primary function of this style is not to fight.
+
+It may be used to get out of a situation one can't win, or as a way to disarm all the enemies and make the fight a more fair hand-to-hand situation. Swift catches and dodges are key to disarming enemies.
+
+With this style, Dani flows like water.
+
 -
 
 # KASEY 
@@ -86,3 +102,11 @@ With this style, anger is everything.
 ## DETECTIVE STYLE
 ### Theme: My Own Style - Judgment
 ### https://open.spotify.com/track/1lNb1Q6BfO1xNf3YoqMhZs?si=a8dadb69d7034228
+
+Kasey's own mish-mash of karate and gunplay. She uses swift moves to take down enemies, but if there are too many, she will pull out a pistol and shoot her foes down. Alternatively, she can mix the two together to make a devastating tornado of damage. 
+
+The environment, like Cisila and Dani, is also important to Kasey's style. She may use parkour to her advantage, running across a wall and slamming her knee into a foe's face, gaining an advantage. Her defense is also pretty strong, being able to counter enemies (but unlike Dani, she is unable to disarm them) and she can also take a lot of damage.
+
+With this style, it's only to survive.
+
+-
