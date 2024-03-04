@@ -11,3 +11,5 @@
 -Figure out the hierarchy of Dani's brotherhood & why it exists
 
 -Figure out what happens to Lyla in proper detail (homeless for a good month, then what?)
+
+-The "Hanged Man"
