@@ -328,3 +328,37 @@ A couple of hours later, they had made it back to Dani's warehouse. Cisila was q
 Cisila thought for a moment, sorting her questions, ideas and theories. "...Well, it's got to be an Ultima, right?" She put the paper down. "From my experience, we don't usually leave anything behind. I'm not really sure how it works, but..." she trailed off. She pursed her lips, trying to think of something. Anything. *Without anything to find, I can't really make any guesses, can I...?* The answer was no. She could think up crazy theories, but none of them would prove true. Looking up at Dani, she felt lost. Dani leaned over the table, "I've got an idea." they said. "Huh?" Cisila said, looking up once again. "You-" They poked Cisila's shoulder, "- can try and see what the Cobra was doing before he died. Don't you have the new Cobra to back you up?" She nodded, but made a face. "I don't like him." She muttered. "Too bad, I guess." Dani said, smiling. "You've got nothing better to do."
 
 Cisila leaned back and crossed her arms, sighing. "I guess. I take it that this is all my job then?" Dani sat on one of the other chairs, crossing their legs. "I've told the others to stay away from it." Cisila sighed again, but Dani continued, "but if you mess up, someone else is taking it. Nobody in the Brotherhood trusts you, and it's not exactly my decision." Cisila raised an eyebrow, "Why would that stop me? Just because I mess up once doesn't mean I'm not good." Dani held a hand up at her, "Not my choice." Cisila frowned, and got up. "I'd better get back home, then..." She gathered up all the paper and photos, sliding them back into the folder, and put it back into her satchel. Yanking it back over her shoulder, she walked to the exit of the lighthouse. Outside, it was clear. The sun had already set. "Bye, then." Cisila said, looking back. Dani nodded, "Have fun." They tilted her head, "...or don't, I dunno. I would hate to be in your place." Cisila smiled, and walked out. Walking down the dirt path towards a small shed at the bottom of the hill that the lighthouse was situated on, she looked up. The sky was rather clear, but no stars could be seen. The moon was out, she noticed, about halfway through its phase. A couple planes were visible far up there, but she looked back down, and entered the shed. Inside, her motorcycle was squeezed in. She picked her helmet off of the workshop table and dusted it off. It had a thin layer of dust spread over it. *Whoops,* she thought. She'd forgotten to clean the bike while she wasn't using it. Quickly, she haphazardly dusted the rest of the helmet off before frantically dusting off the motorcycle. She pulled out a gas can from under the shoddy table, and shook it. It was still pretty full, so she topped up the motorcycle with fuel. Cisila shoved the can back under the table, and wheeled her motorcycle out of the shed. She flipped the kickstand out with her foot, swung a leg over the cycle, and got on. She pulled the key out of her satchel, and turned on the engine. The bike flared to life for the first time in a few days, rumbling under her. She pulled the helmet on, and flipped the visor down. She grabbed hold of the handlebars. Slowly, the motorcycle pulled away and onto the dirt road. Soon enough, she was gone. The only thing left was the trail that the bike left on the dirt road.
+
+
+# From here on, it's just WIP plans for chapters, read at your own risk.
+
+
+# 10
+# DEAD MEN
+### CHICAGO, ILLINOIS, U.S.A
+### 3:01PM, CST
+### OCTOBER 3RD, 2033
+#### CISILA J. SIVETA, 24
+
+-Chapter starts with meeting between Cobra (Dan) & Cisila - investigate recent changes within the gang hierarchy that may be connected to the murders
+
+-Discover that another murder has *just* happened - the leader of the most secluded of the three gangs, the Dragons
+
+-Investigate the crime scene, find out that it's an identical situation to the last gang leader murder (Cisila makes the connection that this could be on purpose to restructure the gangs, by whoever is conducting the murders - or, as she points out to herself, it's just a bad coincidence)
+
+-Dan finds out that there's already a new leader- someone not even originally from any of the gangs (this is obviously extremely suspicious, and the two agree to have a chat with the new leader - assuming they can find him)
+
+# 11
+# OLD FRIENDS
+### CHICAGO, ILLINOIS, U.S.A
+### 7:00PM, CST
+### OCTOBER 5TH, 2033
+#### CISILA J. SIVETA, 24
+
+-Chapter starts on Cisila getting ready in her apartment, when she gets a knock on the door- opens it, and it's Lyla (question is, why is Lyla here?)
+
+-Lyla seems to want to say something, but it doesn't seem like she can bring herself to, and she ends up excusing herself, leaving Cisila confused af
+
+-Cisila leaves, finds Dan, and the two head for the Dragons' temporary hideout, and there's a tense feeling when they finally get in, something is very wrong
+
+-boom bang big reveal, the new leader of the Dragons is someone Cisila knows - her ex-boyfriend, Mikhail
