@@ -349,7 +349,7 @@ Cisila leaned back and crossed her arms, sighing. "I guess. I take it that this 
 -Dan finds out that there's already a new leader- someone not even originally from any of the gangs (this is obviously extremely suspicious, and the two agree to have a chat with the new leader - assuming they can find him)
 
 # 11
-# OLD FRIENDS
+# OLD FRIEND
 ### CHICAGO, ILLINOIS, U.S.A
 ### 7:00PM, CST
 ### OCTOBER 5TH, 2033
@@ -361,4 +361,47 @@ Cisila leaned back and crossed her arms, sighing. "I guess. I take it that this 
 
 -Cisila leaves, finds Dan, and the two head for the Dragons' temporary hideout, and there's a tense feeling when they finally get in, something is very wrong
 
--boom bang big reveal, the new leader of the Dragons is someone Cisila knows - her ex-boyfriend, Mikhail
+-boom bang big reveal, the new leader of the Dragons is someone Cisila knows - her ex-boyfriend, Mikhail (cliffhanger)
+
+# 12
+# WHY ARE YOU HERE?
+### CHICAGO, ILLINOIS, U.S.A
+### 7:50PM, CST
+### OCTOBER 5TH, 2033
+#### CISILA J. SIVETA, 24
+
+-Chapter starts right off with Mikhail staring into Cisila's soul, to the point that Cisila feels like he *knows* something
+
+-Conversation ensues, e.g. "what the hell are you doing?", Mikhail refuses to answer these questions- results in Cisila feeling furious
+
+-Mikhail instead turns his attention towards Dan, and Dan himself now seems to realize that it must have been Mikhail who murdered not only the Dragons' leader, but the leader of the Cobras before Dan (reason being: Mikhail mentions the leader's name in passing, something he should not know, especially if he was not in the gang - same goes for the Dragon) 
+
+-Mikhail, after talking to Dan, turns his attention back to Cisila, asking the titular question, ***"Why are you here?"***, and Cisila stares him dead in the eyes and explains what she's doing (this tips off Mikhail to the fact that his plan is about to go off the rails- and for him to realize that Cisila is a danger)
+
+-Cisila & Dan leave, and Dan tells Cisila that he believes Mikhail did it, to which Cisila says, "He can't have.", and explains why. Dan leaves, frustrated.
+
+# 13
+# THINK
+### CHICAGO, ILLINOIS, U.S.A
+### 3:00PM, CST
+### OCTOBER 6TH, 2033
+#### CISILA J. SIVETA, 24
+
+-Chapter starts in the middle of a workday, where Cisila zones out for a good while - then realizes that Lyla hasn't shown up to work. Ensuing worry. She tries to get a hold of Lyla through her phone, but nothing. Cisila spends the rest of her day worrying. 
+
+-Normal commute back home for Cisila follows, but the moment she steps out of the bookstore, something feels off to her. Like eyes are on her, from windows and across the sidewalk. She tries to ignore it and heads to the subway - but the moment she gets on the train itself, the feeling worsens. She looks around, probably seeing people look away from her. This, in addition to the missing Lyla, makes Cisila start to panic. 
+
+-Once she gets home, she locks her door (note this), and shuts herself in her bedroom. She quickly starts trying to piece together Lyla's disappearance (why was she at her door yesterday?) to *anything* she was looking into. But there's nothing for her to connect it to. She can't connect it to the people watching her (why would they have anything to do with Lyla?) or the gangs (she's not involved, right?) and it seems to her like a new mystery has just...*appeared.*
+
+-And then, her phone buzzes. She gets a message from Lyla. And all it is is an address. In a panic, instead of going there as herself, she pulls her mask out from the floorboards, and puts it on. She leaves quickly, out of her window.
+
+-Running across the rooftops, Cisila's mind is laser focused on trying to figure out why this has happened. Did Lyla even send it? Was it someone else? Somehow, some way, is this a trap? But she's too focused on getting there to stop herself.
+
+-She lands in front of the building- and it turns out to be a construction site. End chapter.
+
+# 14
+# SILVERMANN
+### CHICAGO, ILLINOIS, U.S.A
+### 9:00PM, CST
+### OCTOBER 6TH, 2033
+#### CISILA J. SIVETA, 24
