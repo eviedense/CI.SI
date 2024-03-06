@@ -6,7 +6,10 @@ This is a playlist that I made with every single song that fits that feel.
 
 And I've decided that it would be a decent idea to list out the first ~100 songs or so (the extremely relevant ones) and explain what their significance is (scene flow, vibe, setting, blah blah).
 
+
 # Themes
+
+
 
 ### #1 Lost In The Rain (LOST JUDGMENT, Sega Sound Team)
 https://open.spotify.com/track/0VYVNTL21QUC4Hxms7wtan?si=b885ffe93cdd4573
@@ -40,6 +43,7 @@ https://open.spotify.com/track/2u1FWVxAb16qbgwPgygAdj?si=1f9a7ba8a8b14332
 
 "V" is the theme (and name) for the main character of Cyberpunk 2077, and Cisila's vigilante persona has been dubbed "V" by Dani, in accordance with their naming schemes. This theme is pure anger and fear that the V persona emanates, from the use of the metal skull mask. Imagine Batman, but if he cared less about the city. 
 
+
 # Part 1
 
 
@@ -70,3 +74,54 @@ This could probably illustrate what Cisila is going up against. Trying to go up 
 ### #19 One-Eyed Slugger (YAKUZA 0, Sega Sound Team)
 https://open.spotify.com/track/2cKRAl7WLjOFAXPyNo6q53?si=f47f9c79760d4ac7
 
+This theme from YAKUZA 0 is for one of Goro Majima's fighting styles, Slugger. But in the context of Cisila's world, this is probably a song for fights that she has to endure without the use of her powers (e.g. a fight that happens in broad daylight).
+
+### #20 怨魔の契り (Pledge of Demon) (YAKUZA 0, Sega Sound Team)
+https://open.spotify.com/track/131LgkYxiituZMmrAaSk9Y?si=063959e93e7b43dc
+
+This song is for the second Daisaku Kuze fight in YAKUZA 0, with a strong percussion focus at the start, with a good buildup.
+
+But as a song for Cisila's story, this is for the first fight between Cisila and Mikhail, once Cisila figures out that he is the murderer behind the strange and gorey murders happening in Chicago. She's basically forced to engage Mikhail, letting Lyla escape in the process. This fight happens in the middle of an abandoned school (where Mikhail basically kidnapped Cisila, and Lyla freed her, defying Mikhail) and is the first time that Cisila feels like she has control over a situation, seeing as how she notices that Mikhail is actually a rather inexperienced fighter (but this does NOT mean he isn't brutal).
+
+### Songs #21-24 (Subterranean Castle, Triplet After Triplet, Pellagra, & SEIRYU NO RAN) - (All from YAKUZA: LIKE A DRAGON, Sega Sound Team)
+
+Subterranean Castle is infiltration music. Simple.
+
+Triplet After Triplet is Mikhail's theme, when Cisila finally realizes what he is.
+
+Pellagra & SEIRYU NO RAN are for when Cisila & Lyla finally team up with Dan to find Mikhail and prove he did it (Pellagra for fights, & SEIRYU NO RAN for panic mode music for when the police catch onto what they're doing, and try to stop them- because it's actually beneficial for them to have a working relationship with Mikhail)
+
+### #25 Stigma (LIKE A DRAGON Infinite Wealth, Sega Sound Team)
+https://open.spotify.com/track/4On1R4NlSavi3Tvt6w1dqm?si=53a90927f52e4f41
+
+Final push to find Mikhail, where Dani finally joins them. Cisila, Dani, Lyla & Dan up against the gang of the Dragons (the one Mikhail became leader of), in a construction site for the second tallest building in the city.
+
+### #26 Destination (JUDGE EYES/JUDGMENT, Sega Sound Team)
+https://open.spotify.com/track/3FNO67SjWfXSDqpvQp1gwo?si=02309ff2cf25465a
+
+After an incredibly difficult and long fight up towards the top of the construction site (where Dani knows that Mikhail is hiding) Cisila makes her way up, alone. The other three stay back to fight off any reinforcements (under Cisila's encouragement- they obviously wanted to go with her). When Cisila confronts Mikhail, the two recount their relationship, and the two figure out why they even found each other in the first place- their Ultima abilities (Cisila's EXO & Construct) are two halves of the same thing. Mikhail's is focused on flesh, muscle and bone- anything alive, and Cisila's is everything without life.
+
+And when Mikhail does the funny cliche "we can work together", Cisila turns him down and says that he's basically the worst human being in the city. So Mikhail replies with a simple, "kill me, then" or something along those lines, and Cisila shakes her head. Bam. Mikhail lunges at her and engages in a fight, ripping a metal pipe off of the half-finished walls and trying to bash her head in with it to get her to kill him. But even if Cisila almost always killed, a flip has switched at this point. For a split second, her first reaction is to whip out her blade, but after a couple seconds of defense, it disappears and she raises her fists. Cue music. Yeah.
+
+
+# Part 2
+
+
+### #27 Two-Faced Castle (LIKE A DRAGON GAIDEN The Man Who Erased His Name, Sega Sound Team)
+https://open.spotify.com/track/6GHmxVpI3yHDyuFqHc01NB?si=237f2f16c34f485a
+
+The first true musical cue of Part 2, Two-Faced Castle. In LIKE A DRAGON GAIDEN, this plays when Kazuma Kiryu is forced to flee the floating Castle, as he's being attacked.
+
+For Cisila, this plays when herself and Dan are forced to escape the Dragons' compound after a meeting turns sour. This sequence is based off of, like, every Yakuza/Like a Dragon escape section, so it makes sense to use a song from one of those sequences.
+
+### #28 Psycho's Anthem (LIKE A DRAGON GAIDEN The Man Who Erased His Name, Sega Sound Team)
+https://open.spotify.com/track/0nxspn27RUWk57Hbzsn08c?si=a7294a4d85ec4fa0
+
+This one's a fun one. This is the first true "boss" fight based completely off of a Yakuza boss fight sequence. The fight is not only the first fight in the Part, but also the first one directly related to the infrastructure of the three gangs. Cisila and Dan get out of the compound and halfway across the entrance courtyard, when the leader of the Ravens, "The Eagle", finally catches up to them. Lyla appears and helps Dan escape, while Cisila takes on The Eagle. 
+
+Cinematically speaking, the "intro cutscene" for this would play out like a Yakuza boss fight transition. In the writing, The Eagle wields his knife and brings it down on Cisila- who dodges around it. Then, a few swift strikes between the two occur as our theoretical camera follows them, flying around them while getting a good angle, and then on the final hit- the one that brings them the closest together, everything slows down as the song starts, and your traditional Yakuza boss fight titles appear. You know the deal, something like:
+
+### **PATRIARCH OF THE RAVENS**
+#### |**"THE EAGLE"**|
+
+Like that. Kinda. 
