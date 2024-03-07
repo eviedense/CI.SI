@@ -33,12 +33,12 @@ The pain had suddenly set in, and Cisila's shoulder felt like it was screaming. 
 
 # 2
 # ALONE
-### CHICAGO, ILLINOIS, U.S.A
+### OUTSKIRTS OF WHITEFISH, MONTANA, U.S.A
 ### 2:30PM, CST
-### JUNE 1ST, 2028
+### JUNE 1ST, 2026
 #### CISILA J. SIVETA, 19
 
-Five years ago...
+Six and a half years ago...
 
 It had been a week since they took her. A week since they killed her mother, aswell. And now Cisila was back inside her parents' house after a gruelling 48 hours of being tested on like a rat. She was sitting on the couch, and felt her hands shaking. She hadn't stopped feeling *wrong* since they put whatever it was inside of her. It felt like something else was living inside of her, and it was something she *hated.* Cisila wanted to throw herself into the ocean and never come back up. Without her mother, she had no guidance. And the week she had disappeared just had to have been the same week her college started. 
 
