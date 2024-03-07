@@ -18,6 +18,9 @@ Lost In The Rain is the title screen theme for the 2021 game Lost Judgment. The 
 
 And basically, this piece of music has the same purpose for Cisila. If she had a title screen, this would be her theme (and is also why it is the first song in the playlist). This theme is for Cisila herself
 
+
+## Refer to FIGHTING STYLES for songs #2-8
+
 ### #11 Burned Out (LIKE A DRAGON Infinite Wealth, Sega Sound Team)
 https://open.spotify.com/track/0DScmNNaTBTF0CPNn524H9?si=26a2db1b58ee433f
 
@@ -76,14 +79,23 @@ https://open.spotify.com/track/2cKRAl7WLjOFAXPyNo6q53?si=f47f9c79760d4ac7
 
 This theme from YAKUZA 0 is for one of Goro Majima's fighting styles, Slugger. But in the context of Cisila's world, this is probably a song for fights that she has to endure without the use of her powers (e.g. a fight that happens in broad daylight).
 
-### #20 怨魔の契り (Pledge of Demon) (YAKUZA 0, Sega Sound Team)
+
+### #20 Assault (LIKE A DRAGON GAIDEN The Man Who Erased His Name, Sega Sound Team)
+https://open.spotify.com/track/2PGEkK4ddU826RLmRTak71?si=09737df69f0149d0
+
+This song is for the section of part 1 where Cisila has to make her way through a construction site, fighting through the Dragons' forces to save Lyla (or at least, she believes she's doing that).
+
+Pretty self explanatory. The song itself in LIKE A DRAGON GAIDEN is for gameplay sections where you're constantly fighting to get somewhere, e.g. escape a monastery or rescue your handler.
+
+
+### #21 怨魔の契り (Pledge of Demon) (YAKUZA 0, Sega Sound Team)
 https://open.spotify.com/track/131LgkYxiituZMmrAaSk9Y?si=063959e93e7b43dc
 
 This song is for the second Daisaku Kuze fight in YAKUZA 0, with a strong percussion focus at the start, with a good buildup.
 
 But as a song for Cisila's story, this is for the first fight between Cisila and Mikhail, once Cisila figures out that he is the murderer behind the strange and gorey murders happening in Chicago. She's basically forced to engage Mikhail, letting Lyla escape in the process. This fight happens in the middle of an abandoned school (where Mikhail basically kidnapped Cisila, and Lyla freed her, defying Mikhail) and is the first time that Cisila feels like she has control over a situation, seeing as how she notices that Mikhail is actually a rather inexperienced fighter (but this does NOT mean he isn't brutal).
 
-### Songs #21-24 (Subterranean Castle, Triplet After Triplet, Pellagra, & SEIRYU NO RAN) - (All from YAKUZA: LIKE A DRAGON, Sega Sound Team)
+### Songs #22-25 (Subterranean Castle, Triplet After Triplet, Pellagra, & SEIRYU NO RAN) - (All from YAKUZA: LIKE A DRAGON, Sega Sound Team)
 
 Subterranean Castle is infiltration music. Simple.
 
@@ -91,12 +103,12 @@ Triplet After Triplet is Mikhail's theme, when Cisila finally realizes what he i
 
 Pellagra & SEIRYU NO RAN are for when Cisila & Lyla finally team up with Dan to find Mikhail and prove he did it (Pellagra for fights, & SEIRYU NO RAN for panic mode music for when the police catch onto what they're doing, and try to stop them- because it's actually beneficial for them to have a working relationship with Mikhail)
 
-### #25 Stigma (LIKE A DRAGON Infinite Wealth, Sega Sound Team)
+### #26 Stigma (LIKE A DRAGON Infinite Wealth, Sega Sound Team)
 https://open.spotify.com/track/4On1R4NlSavi3Tvt6w1dqm?si=53a90927f52e4f41
 
 Final push to find Mikhail, where Dani finally joins them. Cisila, Dani, Lyla & Dan up against the gang of the Dragons (the one Mikhail became leader of), in a construction site for the second tallest building in the city.
 
-### #26 Destination (JUDGE EYES/JUDGMENT, Sega Sound Team)
+### #27 Destination (JUDGE EYES/JUDGMENT, Sega Sound Team)
 https://open.spotify.com/track/3FNO67SjWfXSDqpvQp1gwo?si=02309ff2cf25465a
 
 After an incredibly difficult and long fight up towards the top of the construction site (where Dani knows that Mikhail is hiding) Cisila makes her way up, alone. The other three stay back to fight off any reinforcements (under Cisila's encouragement- they obviously wanted to go with her). When Cisila confronts Mikhail, the two recount their relationship, and the two figure out why they even found each other in the first place- their Ultima abilities (Cisila's EXO & Construct) are two halves of the same thing. Mikhail's is focused on flesh, muscle and bone- anything alive, and Cisila's is everything without life.
@@ -107,14 +119,14 @@ And when Mikhail does the funny cliche "we can work together", Cisila turns him 
 # Part 2
 
 
-### #27 Two-Faced Castle (LIKE A DRAGON GAIDEN The Man Who Erased His Name, Sega Sound Team)
+### #28 Two-Faced Castle (LIKE A DRAGON GAIDEN The Man Who Erased His Name, Sega Sound Team)
 https://open.spotify.com/track/6GHmxVpI3yHDyuFqHc01NB?si=237f2f16c34f485a
 
 The first true musical cue of Part 2, Two-Faced Castle. In LIKE A DRAGON GAIDEN, this plays when Kazuma Kiryu is forced to flee the floating Castle, as he's being attacked.
 
 For Cisila, this plays when herself and Dan are forced to escape the Dragons' compound after a meeting turns sour. This sequence is based off of, like, every Yakuza/Like a Dragon escape section, so it makes sense to use a song from one of those sequences.
 
-### #28 Psycho's Anthem (LIKE A DRAGON GAIDEN The Man Who Erased His Name, Sega Sound Team)
+### #29 Psycho's Anthem (LIKE A DRAGON GAIDEN The Man Who Erased His Name, Sega Sound Team)
 https://open.spotify.com/track/0nxspn27RUWk57Hbzsn08c?si=a7294a4d85ec4fa0
 
 This one's a fun one. This is the first true "boss" fight based completely off of a Yakuza boss fight sequence. The fight is not only the first fight in the Part, but also the first one directly related to the infrastructure of the three gangs. Cisila and Dan get out of the compound and halfway across the entrance courtyard, when the leader of the Ravens, "The Eagle", finally catches up to them. Lyla appears and helps Dan escape, while Cisila takes on The Eagle. 
@@ -124,4 +136,17 @@ Cinematically speaking, the "intro cutscene" for this would play out like a Yaku
 ### **PATRIARCH OF THE RAVENS**
 #### |**"THE EAGLE"**|
 
-Like that. Kinda. 
+Like that. Kinda. I dunno.
+
+### #30 & 31 In Full Blast & Bring It On (LIKE A DRAGON GAIDEN The Man Who Erased His Name, Sega Sound Team)
+
+These two are for different kinds of fights (think team-ups) specifically with Dan & Lyla involved, during the part of the story where the gangs go into full-on war and it's causing *such* a big problem that fights are constantly breaking out in the streets.
+
+### #32 Irritation (LIKE A DRAGON Infinite Wealth, Sega Sound Team, 83key)
+https://open.spotify.com/track/4ZBr80A44P1qqp6O6rQe6m?si=529c194b7a7c4285
+
+### #33 Get Over It (YAKUZA Kiwami, Sega Sound Team)
+https://open.spotify.com/track/3MVkgrItUEbsS3Cc1oBLkL?si=26f1a9ebe45f4948
+
+### #34 Scarlet Scar by Fierce Tiger (YAKUZA Kiwami, Sega Sound Team)
+https://open.spotify.com/track/3AP9s2kKTFFthaww28OkGH?si=30ac6cadf24c4a16
