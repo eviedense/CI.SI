@@ -16,3 +16,9 @@ And now, against a cliff in the middle of the night, Cisila was in a life or dea
 And then Cisila began to realize that some of the information command had gotten seemed to be wrong. The north side of the island seemed to be entirely taken up by the facility. It was *massive.* It stretched to the end of the island, and that meant there was no possible spot for a helicopter to pick her up. And if that was the case, then she had no way out. She flicked on her radio quickly, and said, "Captain. It seems like...I don't have a way out." Cisila waited for a response. All she got was static. "Captain?" She repeated. Still nothing. Dejectedly, she turned the radio off. There was only one thing she could do now, and that was execute the mission she was even here to do. *Not like I've got anything better to do.*
 
 So she stood up, and made her way to the facility, ducking in and out of hiding spots carefully.
+
+# 02 - UNRELIABLE
+### MIDDLE OF THE PACIFIC
+### 22:25, MILITARY TIME
+### JULY 5TH, 2035
+#### SGT. CISILA J. SIVETA, 24
