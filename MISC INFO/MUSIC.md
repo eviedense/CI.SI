@@ -7,7 +7,9 @@ This is a playlist that I made with every single song that fits that feel.
 And I've decided that it would be a decent idea to list out the first ~100 songs or so (the extremely relevant ones) and explain what their significance is (scene flow, vibe, setting, blah blah).
 
 
-# Themes
+
+
+# THEMES
 
 
 
@@ -51,7 +53,7 @@ https://open.spotify.com/track/2u1FWVxAb16qbgwPgygAdj?si=1f9a7ba8a8b14332
 "V" is the theme (and name) for the main character of Cyberpunk 2077, and Cisila's vigilante persona has been dubbed "V" by Dani, in accordance with their naming schemes. This theme is pure anger and fear that the V persona emanates, from the use of the metal skull mask. Imagine Batman, but if he cared less about the city. 
 
 
-# Part 1
+## Part 1
 
 
 ### #16 Mind As Universe (Ghostrunner 2, We Are Magonia)
@@ -154,3 +156,53 @@ https://open.spotify.com/track/3MVkgrItUEbsS3Cc1oBLkL?si=26f1a9ebe45f4948
 
 ### #35 Scarlet Scar by Fierce Tiger (YAKUZA Kiwami, Sega Sound Team)
 https://open.spotify.com/track/3AP9s2kKTFFthaww28OkGH?si=30ac6cadf24c4a16
+
+## Part 2
+
+## Part 3
+
+
+# MISC
+
+## LOCATION MUSIC
+
+### #103 Safehouse (Deus Ex Mankind Divided, Sascha Dikiciyan)
+https://open.spotify.com/track/33BRxvctWP2CZgXYOApbE7?si=7c975b6ee8f540ed
+
+Theme for Cisila's apartment in Chicago. Feels empty, as if missing something. Represents how this is certainly not somewhere she wants to be, nor does she truly feel at home here. To her, it's only a place for her to eat, sleep, and relax briefly.
+
+### #105, 106 Dark Days & Tensions Rising (Deus Ex Mankind Divided, Michael McCann)
+https://open.spotify.com/track/7pWuKadgYldbdCBFY3jqKg?si=7e0a13e217cb4e11
+https://open.spotify.com/track/1var4D32IC48LhuRBtCMkB?si=e0faae051a1d4016
+
+Themes for a cloudy day in Chicago. Not too much to say here. Primarily applies to lower class areas of the city.
+
+### #171 In Full Swing (Surkin Version) (Marvel's Spider-Man 2, John Paesano)
+https://open.spotify.com/track/3di0xygZ6EeZZpwsMiRO4z?si=09d313bfc9074a1b
+
+Theme for a sunny day in Chicago. Again, not too much to say.
+
+### #346 Catalyst (Mirror's Edge Catalyst, Solar Fields)
+https://open.spotify.com/track/0l8bSoBGZqcoKv5INJxCCy?si=3769c49773c44a51
+
+Theme for the blocks near and around Cisila's apartments, during the day. (Places like the bookstore, the shops, and Lyla's apartment building- probably a few other notable places, too.)
+
+### #224 Ignition (Call of Duty: Black Ops III, Brian Tuey)
+https://open.spotify.com/track/3nYRs2BET8G6PY0aZh7p57?si=f305dc6e80ab496e
+
+Theme for Chicago, at night. First ~45 seconds or so are what the city would feel like usually, in moments of tension from Cisila's perspective, the rest of the song applies great. This could also be some kind of opening song (say, for a side story, or some kind of non-canon thing).
+
+### #246 Into The Tunnels (Prey 2017, Matt Piersall)
+https://open.spotify.com/track/1h2nzvcxO43Uln7Pnk8Hay?si=f86e7890dc6e4ca4
+
+Theme for when Cisila is inside any skyscraper. Pretty simple. Music ramps into a fight theme, so, like Ignition (above), you can imagine how it works.
+
+### #320 Heavy Artillery (The Wrath of Code, Dan Terminus)
+https://open.spotify.com/track/5cPLJlJmLnJ4bpUL9qQATF?si=658dae16b1e146da
+
+Theme for Chicago's highway, at night. Fast-paced, but only because of the speeds one might go at on the highway.
+
+### #321 Death By Distortion (The Wrath of Code, Dan Terminus)
+https://open.spotify.com/track/6beC3AznIqDCT7jVqvfLHs?si=9e6e2eed65fe42af
+
+Secondary theme for Chicago's highway, also at night. Would be for fights that happen on the highway (if those were to happen. Think Yakuza 0.)
