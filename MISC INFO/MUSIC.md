@@ -159,6 +159,11 @@ https://open.spotify.com/track/3AP9s2kKTFFthaww28OkGH?si=30ac6cadf24c4a16
 
 ## Part 2
 
+### #46 Virtical Point (YAKUZA KIWAMI, Sega Sound Team)
+https://open.spotify.com/track/08faV9thN7hcBMaGdh5r1F?si=135226c76a0e42ca
+
+Theme for the final confrontation between Cisila and Adam, after Adam has tried to "fix" Chicago and nearly brought about the city's demise. Fast-paced, bass heavy, pretty techno. Fits perfectly. Makes for a great final fight theme on the very top of the tallest skyscraper in Chicago. The only lyrics in the song are *"Feel the force"* and *"Feel the power"* which you miiiight be able to interpret as Adam's last attempts at convincing himself that he's still the perfect being, and that he can overcome everything in his path still- despite his attempts at "fixing" the city.
+
 ## Part 3
 
 
