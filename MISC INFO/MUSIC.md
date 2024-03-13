@@ -105,7 +105,7 @@ But as a song for Cisila's story, this is for the first fight between Cisila and
 
 Subterranean Castle is infiltration music. Simple.
 
-Triplet After Triplet is Mikhail's theme, when Cisila finally realizes what he is.
+Triplet After Triplet is Mikhail's theme, when Cisila finally realizes what he is (you know, a crazy murderer!). Could also work as a "boss theme", since that's what the track is for in YAKUZA: LIKE A DRAGON.
 
 Pellagra & SEIRYU NO RAN are for when Cisila & Lyla finally team up with Dan to find Mikhail and prove he did it (Pellagra for fights, & SEIRYU NO RAN for panic mode music for when the police catch onto what they're doing, and try to stop them- because it's actually beneficial for them to have a working relationship with Mikhail)
 
