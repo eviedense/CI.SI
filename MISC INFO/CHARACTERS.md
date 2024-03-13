@@ -124,3 +124,23 @@ And then a man turned up dead. The Chicago Police Department chief. All signs po
 And then, when she least expected it, her investigation coincided with Cisila's. Cisila had figured out that it *was* the Dragons...and it wasn't the only murder they'd committed. And what confused her even more, was that...their leader died. The leader of the Dragons had been replaced. By a man named Mikhail. Knowing Cisila, she recognized that name. She knew this was *bad,* and had far outgrown the case she'd been investigating. But that sure as hell was not going to stop her.
 
 -
+
+## ADAM "PALMER"
+### Age: Uhhhh...? (as of 2033) - Was built, not born
+### Residence: Chicago, Illinois, U.S.A
+#### Theme: https://open.spotify.com/track/7f5Mz1wcxlhVMIHuUFoOWW?si=95ce208ef04248a5
+#### Bloodstained Philosophy - SEGA SOUND TEAM - Yakuza 6: The Song of Life
+
+Adam was a cyborg created by PALMER-EDEN for the express purpose of weeding out the remaining Ultima humans still in Chicago, primarily to kill Cisila & Lyla, due to their continued attempts to break into the PALMER-EDEN tower. He starts off polite, gets to know them, before quickly convincing them that they can get into the PALMER-EDEN tower with his help.
+
+Obviously, this is just a ruse. The first time the three get inside, Adam turns on them- with the help of PALMER-EDEN security, and reveals his true powers. A prototype recreation of Cisila's Construct ability, though, because it's artificial, it isn't as efficient nor as useful as Cisila's. Cue first boss fight or what have you.
+
+After this, Adam completely turns on them, having blown his cover- and begins plan B. Just hunt them down, and kill them. With total control of PALMER-EDEN's security force, he tasks them with bringing in every single Ultima-human to PALMER-EDEN, no matter what it takes. And because a lot of these people have no idea that they even *are* Ultima, things go downhill, and fast. Adam takes it upon himself to fix the issues in the city by not only attempting to cull the Ultima-humans, but anyone who tries to defend those people. Even believing PALMER-EDEN to be above the law, Adam gets permission from the CEO himself to murder any police in cold blood, should they try to stop PALMER-EDEN. In the middle of this pretty brutal culling (all things considered), Adam gets hold of Lyla, and captures her. She throws her on a train and bids her goodbye.
+
+And you can guess how Cisila feels about this one, after her experience with Mikhail and realizing that her actions of pointlessly killing people have done far more harm than actual good. She goes after Adam. After a second encounter between the two where Cisila tries and fails to protect another Ultima-human, they fight again. Cisila suffers a pretty bad loss here, seeing as how she was one against...many, to say the least. As soon as Cisila loses, Adam takes his chance, and tells Cisila that they've "Already gotten Silvermann."
+
+Bam. Switch flipped in Cisila's head. She escapes (much to the chagrin of Adam) and barrels her way straight to PALMER-EDEN tower. However, Lyla's not there- due to Adam locking her up in a train. However, Cisila finds out about this- be it from PALMER-EDEN's databanks, Adam himself in another encounter, or someone else who knows (perhaps the CEO). Cisila makes a beeline for the train before it leaves Chicago. Rescuing Lyla, the two resolve to stop Adam. 
+
+Just as they do this, the city finally devolves into complete and total chaos. The two give one final chase against Adam, all the way to the tippity top of PALMER-EDEN tower, and Lyla gets held back by reinforcements that Adam sends- so Cisila is up against Adam by herself. Bam. Cue final fight music.
+
+Cisila beats Adam to near death (Adam does the same to Cisila), but refuses to kill him. She tells him that he just has to stop, and take accountability. And that's when Adam is forced to reveal that he was never a real human- he was, in fact, a cyborg. He tears a part of his skin off of his face, revealing the complex metal mechanics hiding under his skin.
