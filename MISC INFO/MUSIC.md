@@ -80,7 +80,7 @@ And earlier in the song,
 
 This could probably illustrate what Cisila is going up against. Trying to go up against extremely organized crime (and PALMER-EDEN) which knows the city much better than her is like trying to run through a battlefield without any gear. No matter how much she thinks she may have the upper hand, something always sweeps her legs and knocks her back down to reality. 
 
-### #19 One-Eyed Slugger (YAKUZA 0, Sega Sound Team)
+### #20 One-Eyed Slugger (YAKUZA 0, Sega Sound Team)
 https://open.spotify.com/track/2cKRAl7WLjOFAXPyNo6q53?si=f47f9c79760d4ac7
 
 This theme from YAKUZA 0 is for one of Goro Majima's fighting styles, Slugger. But in the context of Cisila's world, this is probably a song for fights that she has to endure without the use of her powers (e.g. a fight that happens in broad daylight).
@@ -93,19 +93,20 @@ This song is for the section of part 1 where Cisila has to make her way through 
 
 Pretty self explanatory. The song itself in LIKE A DRAGON GAIDEN is for gameplay sections where you're constantly fighting to get somewhere, e.g. escape a monastery or rescue your handler.
 
+### #22 BARRACUDA (LIKE A DRAGON Infinite Wealth, Sega Sound Team, 83key)
+https://open.spotify.com/track/43oL3xToiRxHeaatOHD2im?si=151379c4ffe943bb
 
-### #22 怨魔の契り (Pledge of Demon) (YAKUZA 0, Sega Sound Team)
+
+### #23 怨魔の契り (Pledge of Demon) (YAKUZA 0, Sega Sound Team)
 https://open.spotify.com/track/131LgkYxiituZMmrAaSk9Y?si=063959e93e7b43dc
 
 This song is for the second Daisaku Kuze fight in YAKUZA 0, with a strong percussion focus at the start, with a good buildup.
 
 But as a song for Cisila's story, this is for the first fight between Cisila and Mikhail, once Cisila figures out that he is the murderer behind the strange and gorey murders happening in Chicago. She's basically forced to engage Mikhail, letting Lyla escape in the process. This fight happens in the middle of an abandoned school (where Mikhail basically kidnapped Cisila, and Lyla freed her, defying Mikhail) and is the first time that Cisila feels like she has control over a situation, seeing as how she notices that Mikhail is actually a rather inexperienced fighter (but this does NOT mean he isn't brutal).
 
-### Songs #23-26 (Subterranean Castle, Triplet After Triplet, Pellagra, & SEIRYU NO RAN) - (All from YAKUZA: LIKE A DRAGON, Sega Sound Team)
+### Songs #24-26 (Subterranean Castle, Pellagra, & SEIRYU NO RAN) - (All from YAKUZA: LIKE A DRAGON, Sega Sound Team)
 
 Subterranean Castle is infiltration music. Simple.
-
-Triplet After Triplet is Mikhail's theme, when Cisila finally realizes what he is (you know, a crazy murderer!). Could also work as a "boss theme", since that's what the track is for in YAKUZA: LIKE A DRAGON.
 
 Pellagra & SEIRYU NO RAN are for when Cisila & Lyla finally team up with Dan to find Mikhail and prove he did it (Pellagra for fights, & SEIRYU NO RAN for panic mode music for when the police catch onto what they're doing, and try to stop them- because it's actually beneficial for them to have a working relationship with Mikhail)
 
