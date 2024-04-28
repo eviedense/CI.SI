@@ -8,8 +8,10 @@
 ### Themes:
 Soul of the Ogre - LIKE A DRAGON GAIDEN
 https://open.spotify.com/track/5ztlbmHm1lbJ1GoGB5NMPq?si=0d288a4c48584e83
+
 Receive You the Hyperactive - YAKUZA: LIKE A DRAGON
 https://open.spotify.com/track/2uWE1lBepsweePyRItp2ju?si=56eaa853b2da41ae
+
 Self Love - Spider-Man: Across The Spider-Verse
 https://open.spotify.com/track/0AAMnNeIc6CdnfNU85GwCH?si=fc221f4257cf4e3c
 
