@@ -20,6 +20,8 @@ https://open.spotify.com/track/2uWE1lBepsweePyRItp2ju?si=56eaa853b2da41ae
 Self Love - Spider-Man: Across The Spider-Verse
 https://open.spotify.com/track/0AAMnNeIc6CdnfNU85GwCH?si=fc221f4257cf4e3c
 
+Burned Out - LIKE A DRAGON INFINITE WEALTH
+https://open.spotify.com/track/0DScmNNaTBTF0CPNn524H9?si=4e6235515dec4d70
 
 ## Fighting Style(s)
 
