@@ -5,7 +5,7 @@
 #### Eye Color: Red Wine (brighter in left eye, darker in right eye)
 #### Hair Color: Dull brown
 #### Complexion: Rather pale. May be spending too much time inside. Freckles around her upper cheeks and nose bridge.
-#### Other notes: Scars on her left jaw, scraping up her cheek. Look like they were brutal tears with sharp objects. Scar on her left eyebrow, gained during Part 1 from a Syndicate member.
+#### Other notes: Scars on her left jaw, scraping up her cheek. Look like they were brutal tears from sharp objects. Scar through her left eyebrow, gained during Part 1 from a Syndicate member.
 ### Other
 #### Nicknamed "Cisi", "CJ" (on very rare occasions - usually ironically), "V" (by Dani & The Brotherhood), and referred to by her last name aswell
 
