@@ -1,18 +1,19 @@
-# BIOS
-
 ## Cisila Jane Siveta
 ### Biological:
 #### Age 24 | D.O.B: April 10, 2009
 #### About 5'10" or 177cm
+#### Eye Color: Red Wine (brighter in left eye, darker in right eye)
+#### Hair Color: Dull brown
+#### Complexion: Rather pale. May be spending too much time inside. Freckles around her upper cheeks and nose bridge.
+#### Other notes: Scars on her left jaw, scraping up her cheek. Look like they were brutal tears with sharp objects. Scar on her left eyebrow, gained during Part 1 from a Syndicate member.
+### Other
+#### Nicknamed "Cisi", "CJ" (on very rare occasions - usually ironically), "V" (by Dani & The Brotherhood), and referred to by her last name aswell
 
 ![image](https://github.com/eviedense/CI.SI/assets/119713899/845073bc-3165-4195-9dab-58d4b744ec11)
 
 
 
-### Themes:
-Soul of the Ogre - LIKE A DRAGON GAIDEN
-https://open.spotify.com/track/5ztlbmHm1lbJ1GoGB5NMPq?si=0d288a4c48584e83
-
+### Main Themes:
 Receive You the Hyperactive - YAKUZA: LIKE A DRAGON
 https://open.spotify.com/track/2uWE1lBepsweePyRItp2ju?si=56eaa853b2da41ae
 
@@ -20,6 +21,28 @@ Self Love - Spider-Man: Across The Spider-Verse
 https://open.spotify.com/track/0AAMnNeIc6CdnfNU85GwCH?si=fc221f4257cf4e3c
 
 
+## Fighting Style(s)
+
+### Vigilante:
+#### Style Theme: Soul of the Ogre - LIKE A DRAGON GAIDEN https://open.spotify.com/track/5ztlbmHm1lbJ1GoGB5NMPq?si=0d288a4c48584e83
+
+Cisila's basic hand-to-hand CQC fighting style, which she learned from her father and built on over her years of fighting. Swift jabs and fast combos combine to make an unbreakable offense, mixed with fast and swift dodges.
+
+![like-a-dragon-gaiden-yakuza-gaiden](https://github.com/eviedense/CI.SI/assets/119713899/3123caac-b2c8-4608-8efe-aafef60532be)
+
+Using her abilities, Cisila is able to fend off a group of attackers. Swift combinations of punches and kicks will for sure knock down an enemy, and if the environment allows for it, Cisila will use the environment to her advantage. She'll take hold of garbage cans, signs, or bikes to take down the attackers in devastating attacks, inspired by *Like a Dragon's* Heat Actions.
+
+![like-a-dragon-gaiden-joruy (1)](https://github.com/eviedense/CI.SI/assets/119713899/87ced56a-3a2d-4709-8600-b56f584b0404)
+
+
+
+### Blade:
+#### Style Theme: Stigma - LIKE A DRAGON INFINITE WEALTH https://open.spotify.com/track/4On1R4NlSavi3Tvt6w1dqm?si=3b9c05ddffba4886
+
+A style focused on Cisila's training with a sword. She uses her Construct blade she designed herself to cleave through attackers in long, swift slices. 
+
+
+## Bio / Backstory
 Cisila Jane Siveta is the daughter of PALMER-EDEN scientist Marta Siveta & U.S Marine Augustus Siveta, and lost both of them by the time she was aged eighteen.
 
 But before that, her upbringing was simple. Every week, after school, Augustus would teach Cisila the things he'd learned in the military - in the hopes that Cisila would be able to defend herself properly, had the need ever come. Proper CQC training and how to wield firearms, when she was old enough, was what Cisila learned from her father. A valuable tool in her life.
