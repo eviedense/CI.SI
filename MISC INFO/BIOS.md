@@ -5,6 +5,10 @@
 #### Age 24 | D.O.B: April 10, 2009
 #### About 5'10" or 177cm
 
+![image](https://github.com/eviedense/CI.SI/assets/119713899/845073bc-3165-4195-9dab-58d4b744ec11)
+
+
+
 ### Themes:
 Soul of the Ogre - LIKE A DRAGON GAIDEN
 https://open.spotify.com/track/5ztlbmHm1lbJ1GoGB5NMPq?si=0d288a4c48584e83
@@ -24,4 +28,7 @@ Her life moved on. Soon, Cisila found what she wanted to become. A mechanical en
 
 Her father died during a military conflict, and his body was never recovered. Her mother was killed in front of Cisila herself, by three men with guns - sent by PALMER-EDEN CEO Martin Palmer, for something it would take Cisila a couple of years to understand. Cisila harbors a personal vendetta against Martin for not only killing her mother, but using Cisila as a means to punish her mother. A month or so before her mother was killed, Cisila was kidnapped and put under for PALMER-EDEN's Ultima Program. She was given the organ that grants one the ability of a superpower. Hers turned out to be the ability of creation, called Construct, and the EXO suit that improves her strength, agility, and defense. But these abilities felt like they came at a cost: without her mother, Cisila had nobody to go to. And the memory of her mother being shot through the head right in front of her...something had changed her. It felt as though anxiety came from that memory. Anxiety came from *existing.* It wasn't something she could get rid of. Eventually, everything started to feel anxiety inducing. But she just had to force her way through it.
 
-Not understanding how to use the powers, Cisila moved to Chicago after her mother died: hellbent on ending Martin Palmer. Years passed, and eventually, she got a grip on how to use Construct - she made herself a blade, throwing knives, and attempted to construct a firearm. It didn't work. She knew how to make a firearm, having studied them out of interest, but for whatever reason, she could never get it to work. And that too, caused her stress. She thought she'd never be good enough to make one. 
+Not understanding how to use the powers, Cisila left Montana, where she had been living with her mother and father. She went south, for the time being, and found her sister, Joan Siveta, who was currently working out in the middle of nowhere, as a fire lookout. Cisila joined her, and stayed for a few months. There, she used her free time to understand her Construct and EXO. Cisila couldn't make anything, but she understood the theory.
+
+Cisila moved to Chicago, now understanding her abilities, and was hellbent on ending Martin Palmer. Years passed, and eventually, she got a grip on how to use Construct - she made herself a blade, throwing knives, and attempted to construct a firearm. It didn't work. She knew how to make a firearm, having studied them out of interest, but for whatever reason, she could never get it to work. And that too, caused her stress. She thought she'd never be good enough to make one. 
+
