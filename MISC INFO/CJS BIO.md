@@ -59,13 +59,44 @@ Not understanding how to use the powers, Cisila left Montana, where she had been
 
 Cisila moved to Chicago, now understanding her abilities, and was hellbent on ending Martin Palmer. Years passed, and eventually, she got a grip on how to use Construct - she made herself a blade, throwing knives, and attempted to construct a firearm. It didn't work. She knew how to make a firearm, having studied them out of interest, but for whatever reason, she could never get it to work. And that too, caused her stress. She thought she'd never be good enough to make one. 
 
-### Act 1 - Vendetta, And The Spider's Web
+### Act 1 - Vendetta, and the Spider's Web
 
 #### Day & Night
 
-#### 
+#### Zero Hour, and the Murderer
 
+#### Police, or Criminals?
+
+#### Burned Out
+
+#### The Spider's Web
+
+#### Destination
 
 ### Act 2 - Adam, But No Eve
 
+#### Two-Faced Syndicate
+
+#### In the Garden of Eden...
+
+#### Where Do I Come From?
+
+#### Into the Fire
+
+#### City in Chaos
+
+#### Unwavering Belief
+
 ### Act 3 - Hell on Earth, And The End of Eden
+
+#### Alone, Yet Surrounded
+
+#### Delta Squad & The Mission
+
+#### Zero Hour Again
+
+#### The Truth, and the Desertion
+
+#### The Escape
+
+#### The End of Denial
