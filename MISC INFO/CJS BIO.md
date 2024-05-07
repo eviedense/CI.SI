@@ -46,7 +46,7 @@ A style focused on Cisila's training with a sword. She uses her Construct blade 
 
 # Bio / Backstory
 
-### Act 0 - Childhood to Adulthood
+### Part 0 - Childhood to Adulthood
 Cisila Jane Siveta is the daughter of PALMER-EDEN scientist Marta Siveta & U.S Marine Augustus Siveta, and lost both of them by the time she was aged eighteen.
 
 But before that, her upbringing was simple. Every week, after school, Augustus would teach Cisila the things he'd learned in the military - in the hopes that Cisila would be able to defend herself properly, had the need ever come. Proper CQC training and how to wield firearms, when she was old enough, was what Cisila learned from her father. A valuable tool in her life.
@@ -59,7 +59,7 @@ Not understanding how to use the powers, Cisila left Montana, where she had been
 
 Cisila moved to Chicago, now understanding her abilities, and was hellbent on ending Martin Palmer. Years passed, and eventually, she got a grip on how to use Construct - she made herself a blade, throwing knives, and attempted to construct a firearm. It didn't work. She knew how to make a firearm, having studied them out of interest, but for whatever reason, she could never get it to work. And that too, caused her stress. She thought she'd never be good enough to make one. 
 
-### Act 1 - Vendetta, and the Spider's Web
+### Part 1 - Vendetta, and the Spider's Web
 
 #### Day & Night
 
@@ -73,7 +73,7 @@ Cisila moved to Chicago, now understanding her abilities, and was hellbent on en
 
 #### Destination
 
-### Act 2 - Adam, But No Eve
+### Part 2 - Adam, But No Eve
 
 #### Two-Faced Syndicate
 
@@ -87,7 +87,7 @@ Cisila moved to Chicago, now understanding her abilities, and was hellbent on en
 
 #### Unwavering Belief
 
-### Act 3 - Hell on Earth, And The End of Eden
+### Part 3 - Hell on Earth, And The End of Eden
 
 #### Alone, Yet Surrounded
 
