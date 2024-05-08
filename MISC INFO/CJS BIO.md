@@ -14,6 +14,9 @@
 
 
 ### Main Themes:
+Lost In The Rain - Lost Judgment
+https://open.spotify.com/track/0VYVNTL21QUC4Hxms7wtan?si=be0f7f1ba4db4d8f
+
 Receive You the Hyperactive - YAKUZA: LIKE A DRAGON
 https://open.spotify.com/track/2uWE1lBepsweePyRItp2ju?si=56eaa853b2da41ae
 
