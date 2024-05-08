@@ -100,6 +100,12 @@ With Lyla on her mind, Cisila thinks it might be a good idea to go out for dinne
 
 #### The Spider's Web
 
+Cisila calls up Dan, and requests to meet the Dragons Patriarch. When she explains why, Dan realizes how terrible the situation is. He agrees, and the two head to the Dragons' current lair, an abandoned school. There, they meet the Dragons Patriarch, the murderer...
+
+Mikhail. Cisila can't believe it. The two stare at each other, tensions rising. A fierce conversation ensues. Both of them realize who the other is.
+
+Leaving, Cisila suddenly doesn't feel safe. Dan assures her that this will get solved, quickly.
+
 #### Destination
 
 ### Part 2 - Adam, But No Eve
