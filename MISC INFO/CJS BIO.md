@@ -63,11 +63,40 @@ Cisila moved to Chicago, now understanding her abilities, and was hellbent on en
 
 #### Day & Night
 
+Cisila, now twenty four, works at the Crimson Bookstore in Chicago. She spends her days restocking books, checking to make sure everything's in the right place...and feeling tired. Because every night, she leaves her apartment with a mask on, and tries to find her mothers' killers. Over her years of investigation, with help from a new friend, Kasey, Cisila has figured out that the murderers may have come from the Syndicates, a trio of gangs stationed in Chicago.
+
+In a desperate attempt to stop PALMER-EDEN's development of Ultima, Cisila decides to plant a bomb in one of their supply trucks, intending for the bomb to go off long after the truck has stopped. However, it explodes on the freeway...killing dozens of people.
+
+
 #### Zero Hour, and the Murderer
+
+Only a few hours after the incident, Cisila discovers that one of the men who killed her mother...has been murdered. Investigating the crime scene, she discovers the man's identity: the patriarch of the Dragons Syndicate. The murderer has a specific M.O, and Cisila is tasked by Dani and their Brotherhood to find the murderer. Kasey suggests that Cisila break into the Chicago PD's HQ, to gather what they have on the murder - if anything.
+
+On the trail of the murderer, someone suddenly knocks on the door to Cisila's apartment. She sees nobody, except for a trail of blood - which she follows. The man who knocked on her door turns out to be some kind of journalist, and he gives her evidence that he had been holding onto, much to the chagrin of the murderer. He is killed in Cisila's arms, by a masked assailant with strange, metal claws. Cisila believes they are the murderer.
+
+The assailant steals the file the journalist was intending to give to Cisila, and strangely, gives her the location that they are going to leave it at. 
+
+Cisila assaults the location, a Syndicate owned casino, and makes her way to the top floor. There, she meets the new Patriarch of the Cobras - Dan. She learns that the murderer has also killed the former Cobras Patriarch, which muddies the waters even more.
 
 #### Police, or Criminals?
 
+Now having her hands on the file, Cisila sorts out all of the evidence, making the picture slightly clearer. Realizing that some parts are missing, Cisila remembers Kasey's suggestion: Break into the police headquarters. But she doesn't feel ready. 
+
+For a brief pause on her investigation, Cisila invites Lyla, someone she has a desperate crush on, over for dinner. Her anxiety suddenly ramps up, and, in a moment Cisila didn't expect, Lyla comforts her. Lyla understands...
+
+And that made Cisila feel much better than she had in years. With her newfound confidence, Cisila invades the police headquarters, evades capture, and escapes with the files she needs. The police have dubbed the killer the *Barracuda,* and have been ordered to stop...by someone outside of the police, someone with power.
+
+The one who ordered them to stop, was the new Dragons Patriarch. However, nobody knows who he is. Not even Dan.
+
+But Cisila needs a break, desperately.
+
 #### Burned Out
+
+Getting back to her apartment, Cisila announces to Kasey over the phone that she's got the evidence. Quickly, they sift through the evidence. The Dragons Patriarch is extremely hard to find, Kasey explains, but Cisila knows she can call Dan up - who was very invested in the case when he met Cisila.
+
+However, for now, she needs a break. This is almost immediately put on hold when Mikhail, her ex-boyfriend, whom called her just after she planted the bomb, appears at her door. They talk, but Mikhail leaves quickly, with a strange parting message. Somehow, he knows Lyla.
+
+With Lyla on her mind, Cisila thinks it might be a good idea to go out for dinner with her. She feels...happy, around Lyla. Eventually, the two head out for dinner, and on the pier, at night, they kiss. Cisila's heart flutters.
 
 #### The Spider's Web
 
