@@ -116,9 +116,9 @@ Gradient turned away, and began to leave the building. It was a polite gesture, 
 
 She would force it of Palmer if she had to. Gradient couldn't go on without understanding what really happened. And Palmer *had* to have the answers...not some random Hammerhead operator.
 
-# 4
-# HEART
+# 5
+# NERVE
 ### REMNANTS, ILLINOIS
-### 12:12PM, CST
+### 7:00PM, CST
 ### FEBRUARY 3RD, 2074
 #### CODENAME GRADIENT
