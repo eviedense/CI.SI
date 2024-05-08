@@ -98,7 +98,7 @@ However, for now, she needs a break. This is almost immediately put on hold when
 
 With Lyla on her mind, Cisila thinks it might be a good idea to go out for dinner with her. She feels...happy, around Lyla. Eventually, the two head out for dinner, and on the pier, at night, they kiss. Cisila's heart flutters.
 
-#### The Spider's Web
+#### The Spider's Web, and the Barracuda
 
 Cisila calls up Dan, and requests to meet the Dragons Patriarch. When she explains why, Dan realizes how terrible the situation is. He agrees, and the two head to the Dragons' current lair, an abandoned school. There, they meet the Dragons Patriarch, the murderer...
 
