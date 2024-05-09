@@ -107,7 +107,21 @@ Cisila calls up Dan, and requests to meet the Dragons Patriarch. When she explai
 
 Mikhail. Cisila can't believe it. The two stare at each other, tensions rising. A fierce conversation ensues. Both of them know who the other is.
 
-Leaving, Cisila suddenly doesn't feel safe. Dan assures her that this will get solved, quickly.
+Leaving, Cisila suddenly doesn't feel safe. Dan assures her that this will get solved, quickly. But almost immediately, Cisila gets a message from Lyla. But it's not Lyla- it's *Mikhail.* He tells Cisila that he's taken Lyla, and to get her back, she's got to fight the Dragons. 
+
+Finding the location that the Syndicate has taken Lyla to, an under construction tower, Cisila assaults the site. Fighting to the top, Cisila finds Lyla. 
+
+Lyla attacks Cisila, revealing herself to be the Barracuda, the metal-clawed assassin. In pure shock, Cisila goes on the defensive against Lyla, but her unstoppable attacks take Cisila down - and she is captured.
+
+#### Wounded Beast
+
+Waking up in the Dragons' lair, the abandoned school, Cisila is tied to a chair, and in front of her- is Mikhail. Cisila attempts to question him, but he dodges every single question. Lyla has disappeared, and in desperation, Cisila asks what he's done with Lyla. Mikhail replies, "Nothing. She's just doing her job."
+
+Seizing the opportunity to escape when Mikhail leaves the room, Cisila cuts herself free of the ties, and attempts to escape. Fighting her way through the Dragons still in the Lair, Cisila finds herself in the old science room of the school, where Mikhail finds her again. The rain batters against the windows and the thunder rumbles. Cisila is forced to fight Mikhail.
+
+She loses, barely escaping through a window. After escaping, Cisila collapses on the empty streets, in the rain, half dead. But someone lifts her up - someone helps her. It's Lyla. Quickly, Lyla takes Cisila to her apartment and attempts to patch her up - and attempts to explain what has happened.
+
+She was forced to work with Mikhail under threat of her family finding out she's still alive. Cisila learns that she never knew that much about Lyla...and she decides to withdraw from the investigation, even if for just a few days. Lyla isn't safe, and neither is she. They need help, and safety - Dani. Kasey. They can help.
 
 #### Destination
 
@@ -129,12 +143,12 @@ Leaving, Cisila suddenly doesn't feel safe. Dan assures her that this will get s
 
 #### Alone, Yet Surrounded
 
-#### Delta Squad & The Mission
+#### The Heart of Nevada
 
 #### Zero Hour Again
 
 #### The Truth, and the Desertion
 
-#### The Escape
+#### Forget About The Mission
 
 #### The End of Denial
