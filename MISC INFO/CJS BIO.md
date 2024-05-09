@@ -1,13 +1,14 @@
 ## Cisila Jane Siveta
 ### Biological:
-#### Age 24 | D.O.B: April 10, 2009
+#### Age 24 | D.O.B: April 10, 2009 in Helena, Montana
 #### About 5'10" or 177cm
 #### Eye Color: Red Wine (brighter in left eye, darker in right eye)
 #### Hair Color: Dull brown
 #### Complexion: Rather pale. May be spending too much time inside. Freckles around her upper cheeks and nose bridge.
 #### Other notes: Scars on her left jaw, scraping up her cheek. Look like they were brutal tears from sharp objects. Scar through her left eyebrow, gained during Part 1 from a Syndicate member.
 ### Other
-#### Nicknamed "Cisi", "CJ" (on very rare occasions - usually ironically), "V" (by Dani & The Brotherhood), and referred to by her last name aswell
+#### Nicknamed "Cisi", "V" (by Dani & The Brotherhood), and referred to by her last name aswell
+#### Current residence is Chicago, Illinois
 
 ![image](https://github.com/eviedense/CI.SI/assets/119713899/845073bc-3165-4195-9dab-58d4b744ec11)
 
@@ -48,6 +49,8 @@ A style focused on Cisila's training with a sword. She uses her Construct blade 
 
 
 # Bio / Backstory
+
+![lost-judgment-takayuki-yagami](https://github.com/eviedense/CI.SI/assets/119713899/e4984635-95e0-4efd-b7cb-39726a991c19)
 
 ### Part 0 - Childhood to Adulthood
 Cisila Jane Siveta is the daughter of PALMER-EDEN scientist Marta Siveta & U.S Marine Augustus Siveta, and lost both of them by the time she was aged eighteen.
