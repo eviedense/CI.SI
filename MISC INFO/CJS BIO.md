@@ -127,7 +127,13 @@ She was forced to work with Mikhail under threat of her family finding out she's
 
 ### Part 2 - Adam, But No Eve
 
-#### Two-Faced Syndicate
+#### From the Garden of Eden
+
+Four months after Mikhail is apprehended and sentenced to the rest of his life in jail, Cisila is still in Chicago, and still trying to find a way into PALMER-EDEN, to end their experiments. With the help of Lyla, Cisila has discovered several entrances to the PALMER-EDEN skyscraper, most of which are closed off, or locked with keycards.
+
+One night, Lyla tails a PALMER-EDEN convoy, which stops in some kind of warehouse. She calls Cisila, who swiftly joins her, and the two survey the situation. A crate, looking like it would fit an average human, is pulled out of one of the vans. Cisila speculates that it might be another Ultima victim, which Lyla agrees with. The two take on the PALMER-EDEN security in the warehouse, and retrieve the man inside the crate. Rescuing him, Lyla and Cisila leave with him quickly, and find out his name. Adam. 
+
+#### Two-Faced Syndicates
 
 #### In the Garden of Eden...
 
@@ -142,6 +148,11 @@ She was forced to work with Mikhail under threat of her family finding out she's
 ### Part 3 - Hell on Earth, And The End of Eden
 
 #### Alone, Yet Surrounded
+
+After Adam's murder of the small Ultima population and causing chaos in Chicago, Cisila has been contacted by the U.S government, and forced to enlist as part of an elite fireteam made specifically of Ultima: she speculates that the reason for this is to round up every remaining one, and kill them off in a way where nobody will notice.
+
+On her first mission as DELTA-SIX in Delta Squad, Cisila is sent on a stealth mission into enemy area to retrieve data and get evidence that a terrorist organization exists. It's almost suicide, but when she gets caught, the rest of Delta Squad saves her. The squad captain, Kellien, has brute forced her way through every single mission, and has never lost a member...until the loss of the previous DELTA-SIX, and for the time being, she simply believes that Cisila is a replacement, and not a move by the U.S government to guarantee her death.
+
 
 #### The Heart of Nevada
 
