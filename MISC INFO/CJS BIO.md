@@ -2,7 +2,7 @@
 ### Biological:
 #### Age 24 | D.O.B: April 10, 2009 in Helena, Montana
 #### About 5'10" or 177cm
-#### Eye Color: Red Wine (brighter in left eye, darker in right eye)
+#### Eye Color: Red wine (brighter in left eye, darker in right eye)
 #### Hair Color: Dull brown
 #### Complexion: Rather pale. May be spending too much time inside. Freckles around her upper cheeks and nose bridge.
 #### Other notes: Scars on her left jaw, scraping up her cheek. Look like they were brutal tears from sharp objects. Scar through her left eyebrow, gained during Part 1 from a Syndicate member.
@@ -46,6 +46,8 @@ Using her abilities, Cisila is able to fend off a group of attackers. Swift comb
 #### Style Theme: Stigma - LIKE A DRAGON INFINITE WEALTH https://open.spotify.com/track/4On1R4NlSavi3Tvt6w1dqm?si=3b9c05ddffba4886
 
 A style focused on Cisila's training with a sword. She uses her Construct blade she designed herself to cleave through attackers in long, swift slices. 
+
+![ghostrunner-ninja](https://github.com/eviedense/CI.SI/assets/119713899/aa36162e-93fa-4b2b-84d0-5031acc204dc)
 
 
 # Bio / Backstory
