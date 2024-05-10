@@ -45,7 +45,7 @@ Using her abilities, Cisila is able to fend off a group of attackers. Swift comb
 ### Blade:
 #### Style Theme: Stigma - LIKE A DRAGON INFINITE WEALTH https://open.spotify.com/track/4On1R4NlSavi3Tvt6w1dqm?si=3b9c05ddffba4886
 
-A style focused on Cisila's training with a sword. She uses her Construct blade she designed herself to cleave through attackers in long, swift slices. 
+A style focused on Cisila's training with a sword, taught to her by Dani. She uses her Construct blade she designed herself to cleave through attackers in long, swift slices. 
 
 ![ghostrunner-ninja](https://github.com/eviedense/CI.SI/assets/119713899/aa36162e-93fa-4b2b-84d0-5031acc204dc)
 
