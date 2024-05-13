@@ -145,4 +145,4 @@ He was *vulnerable.* The pain she had just felt had given way to anger. Gradient
 
 #### - [ CEO OF PALMER-EDEN ] -
 
-![yakuza-yakuza3](https://github.com/eviedense/CI.SI/assets/119713899/9f8eef64-092c-46ff-826f-c5ba7cf3815f)
+![yakuza-6](https://github.com/eviedense/CI.SI/assets/119713899/d1b3eb86-435b-4492-82d5-ab59c26199dc)
