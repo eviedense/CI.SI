@@ -158,9 +158,25 @@ Suddenly, everything began to slow down. Everything shifted into a blue haze. *O
 
 Gradient plummeted to the ground, but at least at this height, she'd survive.
 
+But, in her desperate attempt to survive, she'd missed the fact that the figure's time freeze...had shunted her forwards. Far much more than a few hours.
+
 # 6
 # ALONE
 ### REMNANTS, ILLINOIS
 ### 12:37PM, CST
-### FEBRUARY 4TH, 2074
+### FEBRUARY 10TH, 2074
 #### CODENAME GRADIENT
+
+Gradient woke up face down, on the ground. The cracking pavement was warm. The sun beat down on her back. Her breathing was steady. But something felt off...her emotions stirred as she realized that the environment around her wasn't Chicago. Confusion seemed to bubble inside her, and as she opened her eye, Gradient tried to pull herself up. Her arms felt weak, and drowsiness lay on her like a heavy mist. Inhaling deeply, she slowly pulled herself up. As she got up, Gradient looked around herself. Unbelievably, she was in the middle of nowhere. There wasn't a skyscraper in sight...or, in fact, any human. In Chicago, there was still a lot of people. Most streets still had stores open, even electricity...it was just the centre of the city, where the Eden Skyscraper was, that had nobody in it- outside of the Skyscraper, that is. Gradient grumbled, running her metal hands through her hair. The blood running down the side of her head had dried. The glass shards were still in her shoulders, but she easily pulled them out after a couple minutes of fiddling. Throwing the tiny pieces to the paved road, she sighed. Gradient had somehow ended up in the middle of nowhere, and wherever she looked, she could only see desert. Collapsed buildings, like old gas stations. Homes that were vacated long, long ago. The sky was violently blue, with only the pitiful wisps of clouds floating above her. Silently, Gradient dug through her gear, trying to find anything she could use, still. Her water bottle was gone. A few of her other tools had disappeared, aswell. The only thing she still had was her radio, attached to her vest. But it probably wouldn't be useful to her, not being able to get a hold of anybody from PALMER-EDEN...she was probably declared dead, or, in a worse scenario, she was called a traitor and ordered to be shot on sight. What still eluded her was the fact that Palmer, for some reason, had ever decided to keep her around. If she wasn't useful, then why was she alive? He had clearly gotten what he wanted from the Cisila girl, so there was no reason to tear her memories out and replace her with Gradient. *Maybe he just wanted to get a bit of torture in for revenge,* She thought. 
+
+Digging a hand into one of her utility pouches, she felt something inside it. *That...wasn't there before.* It felt like a piece of paper. Pulling it out, she saw that it was a small note, folded. Gradient slowly unfolded it, and as she did, another piece of paper fell out of it, floating to the ground. Looking down at it, slightly confused, Gradient picked it back up and looked at it. It was an old American dollar bill...worth one whole dollar, in the old world. *What the hell's this for?* She thought, before reading the note. The note read:
+
+*Bandits took your shit. Wasn't able to stop them.*
+
+*Have to write fast - find me at Old Willy's outpost, a couple klicks south of where I found you.*
+
+*Can't carry you. I'm sorry. Use the bill to get into Old Willy's. Do NOT lose it.*
+
+*Name's Adrian.*
+
+This man had found her on the road...and he had clearly been in a hurry. The handwriting was fast, jagged, and every dotted *i* looked like he had almost poked through the paper. The paper itself was torn from some kind of poster, because on the other side, there was a fragment of a design she didn't recognize. *South.* Her mind echoed. She pulled out her primitive compass - another one of the things the bandits didn't take - and oriented herself. The compass pointed north, so Gradient wheeled around on her heel until it pointed south. *Alright. This way it is. I hope it's not too long of a trek...* She was worried she'd just collapse and die halfway there, not having any food or drink.
