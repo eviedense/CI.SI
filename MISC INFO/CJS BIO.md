@@ -110,9 +110,9 @@ With Lyla on her mind, Cisila thinks it might be a good idea to go out for dinne
 
 Cisila calls up Dan, and requests to meet the Dragons Patriarch. When she explains why, Dan realizes how terrible the situation is. He agrees, and the two head to the Dragons' current lair, an abandoned school. There, they meet the Dragons Patriarch, the murderer...
 
-Mikhail. Cisila can't believe it. The two stare at each other, tensions rising. A fierce conversation ensues. Both of them know who the other is.
+Mikhail. Cisila can't believe it. The two stare at each other, tensions rising. Both of them realize who the other is. Taking Dan out of the fight, leaving him out cold, Mikhail engages Cisila in a fight.
 
-Leaving, Cisila suddenly doesn't feel safe. Dan assures her that this will get solved, quickly. But almost immediately, Cisila gets a message from Lyla. But it's not Lyla- it's *Mikhail.* He tells Cisila that he's taken Lyla, and to get her back, she's got to fight the Dragons. 
+Escaping, Cisila suddenly doesn't feel safe. Dan, now awake and still alive, assures her that this will get solved, quickly. But almost immediately, Cisila gets a message from Lyla. But it's not Lyla- it's *Mikhail.* He tells Cisila that he's taken Lyla, and to get her back, she's got to fight the Dragons. 
 
 Finding the location that the Syndicate has taken Lyla to, an under construction tower, Cisila assaults the site. Fighting to the top, Cisila finds Lyla. 
 
