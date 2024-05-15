@@ -132,7 +132,7 @@ She was forced to work with Mikhail under threat of her family finding out she's
 
 ### Part 2 - Adam, But No Eve
 
-#### From the Garden of Eden
+#### From the Garden of Eden...
 
 Four months after Mikhail is apprehended and sentenced to the rest of his life in jail, Cisila is still in Chicago, and still trying to find a way into PALMER-EDEN, to end their experiments. With the help of Lyla, Cisila has discovered several entrances to the PALMER-EDEN skyscraper, most of which are closed off, or locked with keycards.
 
@@ -140,7 +140,7 @@ One night, Lyla tails a PALMER-EDEN convoy, which stops in some kind of warehous
 
 #### Two-Faced Syndicates
 
-#### In the Garden of Eden...
+#### ...In the Garden of Eden
 
 #### Where Do I Come From?
 
