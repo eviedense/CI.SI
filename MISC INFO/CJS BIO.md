@@ -55,9 +55,9 @@ A style focused on Cisila's training with a sword, taught to her by Dani. She us
 ![lost-judgment-takayuki-yagami](https://github.com/eviedense/CI.SI/assets/119713899/e4984635-95e0-4efd-b7cb-39726a991c19)
 
 ### Part 0 - Childhood to Adulthood
-Cisila Jane Siveta is the daughter of PALMER-EDEN scientist Marta Siveta & U.S Marine Augustus Siveta, and lost both of them by the time she was aged eighteen.
+Cisila Jane Siveta is the daughter of PALMER-EDEN scientist Marta Siveta & U.S Marine David Siveta, and lost both of them by the time she was aged eighteen.
 
-But before that, her upbringing was simple. Every week, after school, Augustus would teach Cisila the things he'd learned in the military - in the hopes that Cisila would be able to defend herself properly, had the need ever come. Proper CQC training and how to wield firearms, when she was old enough, was what Cisila learned from her father. A valuable tool in her life.
+But before that, her upbringing was simple. Every week, after school, David would teach Cisila the things he'd learned in the military - in the hopes that Cisila would be able to defend herself properly, had the need ever come. Proper CQC training and how to wield firearms, when she was old enough, was what Cisila learned from her father. A valuable tool in her life.
 
 Her life moved on. Soon, Cisila found what she wanted to become. A mechanical engineer. Mechanics always interested her, and the prospect of being able to make her own things felt like *just* what she wanted to do.
 
