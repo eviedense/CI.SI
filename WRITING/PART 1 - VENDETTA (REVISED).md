@@ -285,4 +285,7 @@ And with a sudden lunge, Mikhail thrusted the knife towards Cisila. She dodged t
 ### [-PATRIARCH OF THE DRAGONS SYNDICATE-]
 ### [-THE MURDERER-]
 
+#### https://open.spotify.com/track/0OUaj113PIk5KJydnmpij5?si=bd6ea28d8a7048d2 
+#### Triplet After Triplet - YAKUZA: LIKE A DRAGON
+
 ![like-a-dragon-gaiden-kiryu-kazuma (1)](https://github.com/eviedense/CI.SI/assets/119713899/8353f0b6-acaa-45a5-9fba-8ee74643c4f0)
