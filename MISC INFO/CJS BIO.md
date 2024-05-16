@@ -168,3 +168,17 @@ On her first mission as DELTA-SIX in Delta Squad, Cisila is sent on a stealth mi
 #### Forget About The Mission
 
 #### The End of Denial
+
+### Part Extra - Small Town Woes
+
+#### Lakelight, And The Missing Sister
+
+#### Local Trouble, Incoming
+
+#### Six Feet Under, Buried in Light
+
+#### Underground Secrets, and The Blood Pact
+
+#### The Wire Snaps
+
+#### Reign
