@@ -54,7 +54,7 @@ A style focused on Cisila's training with a sword, taught to her by Dani. She us
 
 ![lost-judgment-takayuki-yagami](https://github.com/eviedense/CI.SI/assets/119713899/e4984635-95e0-4efd-b7cb-39726a991c19)
 
-### Part 0 - Childhood to Adulthood
+### Part 0 - Childhood to Adulthood - 2009 Onwards
 Cisila Jane Siveta is the daughter of PALMER-EDEN scientist Marta Siveta & U.S Marine David Siveta, and lost both of them by the time she was aged eighteen.
 
 But before that, her upbringing was simple. Every week, after school, David would teach Cisila the things he'd learned in the military - in the hopes that Cisila would be able to defend herself properly, had the need ever come. Proper CQC training and how to wield firearms, when she was old enough, was what Cisila learned from her father. A valuable tool in her life.
@@ -67,7 +67,7 @@ Not understanding how to use the powers, and now alone, Cisila left Montana, whe
 
 Cisila moved to Chicago, now understanding her abilities, and was hellbent on ending Martin Palmer. Years passed, and eventually, she got a grip on how to use Construct - she made herself a blade, throwing knives, and attempted to construct a firearm. It didn't work. She knew how to make a firearm, having studied them out of interest, but for whatever reason, she could never get it to work. And that too, caused her stress. She thought she'd never be good enough to make one. 
 
-### Part 1 - Vendetta, and the Spider's Web
+### Part 1 - Vendetta, and the Spider's Web - 2034
 
 #### Day & Night
 
@@ -130,7 +130,7 @@ She was forced to work with Mikhail under threat of her family finding out she's
 
 #### Destination
 
-### Part 2 - Adam, But No Eve
+### Part 2 - Adam, But No Eve - Early 2035
 
 #### From the Garden of Eden...
 
@@ -150,7 +150,7 @@ One night, Lyla tails a PALMER-EDEN convoy, which stops in some kind of warehous
 
 #### Unwavering Belief
 
-### Part 3 - Hell on Earth, And The End of Eden
+### Part 3 - Hell on Earth, And The End of Eden - Late 2035
 
 #### Alone, Yet Surrounded
 
@@ -169,7 +169,7 @@ On her first mission as DELTA-SIX in Delta Squad, Cisila is sent on a stealth mi
 
 #### The End of Denial
 
-### Part Extra - Small Town Woes
+### Part Extra - Small Town Woes - 2036
 
 #### Lakelight, And The Missing Sister
 
