@@ -1,22 +1,31 @@
-# So What The Heck Is This?
+# Hi.
 
-Cisila Jane Siveta, twenty four, is a normal person during the day- and a vigilante at night. She is Chicago's Batman. She, to the criminal underworld, is fear itself. Cisila works alone, though is sometimes forced to work alongside a cult-like organization that rescued her from the edge of life.
-She tries to do everything she can to get back at the ones who ruined her life. The ones who forced her along this path. *PALMER-EDEN,* a strange pharmaceutical company dabbling in the confusing ethics of super-powered humans.
+This is a collection of my writing for my writing project. You can find Parts 1, 2, and 3 along with some extra content here. Check EXTRA for INTERIM and DESOLATION, and find Parts Extra, Contract Killer, and Kasey's "Blurred" in WRITING, in the same place as Parts 1 2, and 3. 
 
-By day, she works at a library- alone. She tries to ignore her coworkers, but eventually, she just can't. Someone likes her, and she likes them back.
+Check MISC INFO for other extra stuff that doesn't quite count as proper writing, including a full bio on the main character and her different versions. 
 
-By night, she dons a strange mask with an ominous aura, and uses her ability **EXO** and **Construct** to investigate the criminal underworld hiding in Chicago.
+# The Point?
 
-# Writing
+The point of this is just to have fun, and I don't really take this as a serious writing thing. Ideas come, ideas work, and they get written down.
 
-My (kind of sucky) writing is featured in here, shown through PART 1, PART 2, PART 3, INTERIM - 2088, and REIGN. These main stories follow Cisila's journey to become not a hero, but a journey to survive. Not everything is black and white, especially not the glorious United States of America.
+# The Story
 
-# Lore
+The story follows a girl named Cisila Jane Siveta, who is twenty four. Both of her parents died, but not together. Her father died in a military conflict, while her mother was shot in front of her. Cisila desperately wants revenge against the one who ordered her mom killed. As her mother was a scientist and project leader for pharmaceutical company PALMER-EDEN, and was trying to expose something that PALMER-EDEN was doing, she was killed. This "something" Cisila had been affected by, giving her something akin to super powers. Understanding what to do, Cisila leaves her childhood home alone, and goes to Chicago. Cue the rest of the plot.
 
-There's lots of this. From the main detailed story of Cisila, to random whatever conversations where characters discuss important things, to alternate universes where something went wrong. 
+There are a lot of characters in the story (or will be in the story as of the time of writing this) so a README can't really cover all of them, but here is a quick list:
 
-# Music? What?
+Cisila Jane Siveta - Main Character/Protagonist, biggest arc (obviously)
 
-In the actual written PART 1, 2, 3, and INTERIM, you can find Spotify links to music. I use music far, far too much as a source for the general vibe. It also helps me think and create scenes.
+Lyla Silvermann - Deuteragonist, Love Interest
 
---
+Dani Joserte - Secondary Character, kind of a "mentor figure", one of the leaders of a mysterious group
+
+Kasey - Secondary Character, Best Friends with Cisila
+
+Zephyr - Secondary Character, affiliated with Dani
+
+Mikhail Reznov - First antagonist, former love interest
+
+Adam - Second antagonist, acts as a Garden of Eden metaphor
+
+Martin Palmer - Main antagonist, gives Cisila her powers, acts as the final boss of everything - CEO of PALMER-EDEN
