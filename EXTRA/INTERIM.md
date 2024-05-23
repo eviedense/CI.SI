@@ -161,7 +161,7 @@ Gradient plummeted to the ground, but at least at this height, she'd survive.
 But, in her desperate attempt to survive, she'd missed the fact that the figure's time freeze...had shunted her forwards. Far much more than a few hours.
 
 # 6
-# ALONE
+# WASTELAND
 ### REMNANTS, ILLINOIS
 ### 12:37PM, CST
 ### FEBRUARY 10TH, 2074
