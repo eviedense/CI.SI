@@ -194,3 +194,12 @@ As they began to walk down the road, Morgan pulled out some kind of inhaler, and
 Morgan grunted. "Lúniks. They call it Lúniks."
 
 A planet far away from the wasteland. And if it was able to harbor humanity, then it had everything that Earth had that humanity had used already. In spades.
+
+Somehow, Palmer had hidden an entire planet from the existence of upper America. Not only had he ripped Cisila's life from her, he had hidden the existence of a saving grace. It seemed like he just wanted people to play with, as if the world was a table-top game. If she ever got a chance to get to Lúniks, Gradient would take it.
+
+# 7
+# BACK ON TRACK
+### REMNANTS, ILLINOIS
+### 4:01PM, CST
+### FEBRUARY 10TH, 2074
+#### CODENAME GRADIENT, CORPORAL JOHN MORGAN
