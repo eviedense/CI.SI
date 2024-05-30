@@ -128,7 +128,7 @@ She loses, barely escaping through a window. After escaping, Cisila collapses on
 
 She was forced to work with Mikhail under threat of her family finding out she's still alive. Cisila learns that she never knew that much about Lyla...and she decides to withdraw from the investigation, even if for just a few days. Lyla isn't safe, and neither is she. They need help, and safety - Dani. Kasey. They can help.
 
-#### Destination
+#### The Destination, but For Whose Sake?
 
 ### Part 2 - Adam, But No Eve - Early 2035
 
