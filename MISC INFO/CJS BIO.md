@@ -130,7 +130,7 @@ She was forced to work with Mikhail under threat of her family finding out she's
 
 #### The Destination, but For Whose Sake?
 
-### Part 2 - Adam, But No Eve - Early 2035
+### Part 2 - Adam and Eve - Early 2035
 
 #### From the Garden of Eden...
 
@@ -165,19 +165,19 @@ On her first mission as DELTA-SIX in Delta Squad, Cisila is sent on a stealth mi
 
 #### The Truth, and the Desertion
 
-#### Forget About The Mission
+#### Up, Up and Away: Towards Your Goal
 
-#### The End of Denial
+#### A Fleeting Dream
 
 ### Part Extra - Small Town Woes - 2036
 
-#### Lakelight, And The Missing Sister
+#### Lakelight, Buried in Shadow
 
-#### Local Trouble, Incoming
+#### Soaked in Blood and Guts
 
-#### Six Feet Under, Buried in Light
+#### Where Dreams Come to Die
 
-#### Underground Secrets, and The Blood Pact
+#### The Real Town
 
 #### The Wire Snaps
 
