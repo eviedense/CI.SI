@@ -6,12 +6,17 @@
 #### Hair Color: Dull brown
 #### Complexion: Rather pale. May be spending too much time inside. Freckles around her upper cheeks and nose bridge.
 #### Other notes: Scars on her left jaw, scraping up her cheek. Look like they were brutal tears from sharp objects. Scar through her left eyebrow, gained during Part 1 from a Syndicate member.
+
 ### Other
 #### Nicknamed "Cisi", "V" (by Dani & The Brotherhood), and referred to by her last name aswell
 #### Current residence is Chicago, Illinois
+#### Outfit 1 (Part 1, 2, Last quarter of 3): Purple T-shirt, sapphire amulet, grey cargo shorts and a pair of sports shoes (primarily white with purple as a secondary) leather hand wrap for her right hand (navy blue), and a smartwatch on her left wrist
+#### Outfit 2 (Part Extra, onwards): Purple undershirt, reaches to her neck, darker purple button-up long sleeve, harness with revolver holsters, dark grey cargo pants with a toolbelt and dropleg holster for SOCOM MK23, hiking shoes or combat boots depending on environment - additionally, silver ring on right hand ringfinger, fingerless leather gloves and sapphire amulet
 
 ![image](https://github.com/eviedense/CI.SI/assets/119713899/845073bc-3165-4195-9dab-58d4b744ec11)
 
+
+![Screenshot 2024-06-12 10 23 44 AM](https://github.com/eviedense/CI.SI/assets/119713899/d1bfe898-9426-4c32-9e7c-dfd03ffea7c7)
 
 
 ### Main Themes:
