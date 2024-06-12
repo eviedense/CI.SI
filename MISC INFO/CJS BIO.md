@@ -13,8 +13,11 @@
 #### Outfit 1 (Part 1, 2, Last quarter of 3): Purple T-shirt, sapphire amulet, grey cargo shorts and a pair of sports shoes (primarily white with purple as a secondary) leather hand wrap for her right hand (navy blue), and a smartwatch on her left wrist
 #### Outfit 2 (Part Extra, onwards): Purple undershirt, reaches to her neck, darker purple button-up long sleeve, harness with revolver holsters, dark grey cargo pants with a toolbelt and dropleg holster for SOCOM MK23, hiking shoes or combat boots depending on environment - additionally, silver ring on right hand ringfinger, fingerless leather gloves and sapphire amulet
 
+*Parts 1, 2, 3: Aged 24-25*
+
 ![image](https://github.com/eviedense/CI.SI/assets/119713899/845073bc-3165-4195-9dab-58d4b744ec11)
 
+*Part Extra onwards: Aged 26*
 
 ![Screenshot 2024-06-12 10 23 44 AM](https://github.com/eviedense/CI.SI/assets/119713899/d1bfe898-9426-4c32-9e7c-dfd03ffea7c7)
 
@@ -186,4 +189,18 @@ On her first mission as DELTA-SIX in Delta Squad, Cisila is sent on a stealth mi
 
 #### The Wire Snaps
 
-#### Reign
+#### Against the Dream, the Nightmare
+
+### Part Extra 2 - Endless Paradise - 2036
+
+#### Dim And Boring, as Usual
+
+#### The Night, Lit Up By a Rainbow
+
+#### Six Feet Under The Beach
+
+#### The Whole Island is Wary of You
+
+#### Kick Yourself Into Gear
+
+#### Tip of The Spear
