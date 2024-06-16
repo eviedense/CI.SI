@@ -391,3 +391,12 @@ Lyla sniffled, and nodded subtly. "I couldn't, though." She whispered. "I couldn
 -
 
 Lyla shook Cisila. "Fuck." She hissed. "Motherfucker...why...?!" But Cisila was completely unconscious. Her mind was a blur. Too many things had happened at once. Cisila seemed to be dead set on this Dani person saving them. Lyla, feeling herself become weaker, found Dani's contact, and called her. Holding the phone up to her ear, Lyla waited for an answer. *Please. Come on. Pick the fuck up.* She sniffled to herself as she waited, drenched. She couldn't let Mikhail tell her family. She couldn't let Cisila die. And then, suddenly, Dani picked up. "Cisila?" They said. They sounded tired. It *was* late, Lyla reminded herself. "What's up? Something wrong?" Lyla inhaled. "Cisila's dying. She's losing blood." She stuttered. "I...I am aswell." She began to plow through an explanation. "She found the murderer. I was working with him, under threat of- of blackmail. We fought him. We couldn't touch him, he- he-" But Dani stopped her. "Stop. Where are you?" They asked calmly. "Calm down, and tell me where you are." Lyla shuddered, inhaling. "Fuck, fuck, fuck...okay..." she responded. "School. An abandoned one. Just outside of town. Got three floors. We're in the courtyard. I don't know if that's-" Dani cut her off. "Got it. How bad are the injuries?" They asked. "Got a- blade in my stomach." Lyla responded. "Cisila's...bad. Big tears in her face-" She decided not to say who did it, "And I think parts of her skull have been fractured by a hammer. She's been stabbed in the stomach too. Arm's broken...hand, too...I can't- I can't." She began to feel her arm quiver. And without a response, Dani hung up. The phone slipped out of Lyla's hand. All she could do was hope. But without a response, it didn't feel like she could have any.
+
+Lyla collapsed next to Cisila. 
+
+# 14
+# WRAPPED UP
+### CHICAGO, ILLINOIS, U.S.A
+### 9:10AM, CST
+### OCTOBER 10TH, 2033
+#### CISILA J. SIVETA, 24
