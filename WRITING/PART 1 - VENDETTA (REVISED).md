@@ -400,5 +400,5 @@ Lyla collapsed next to Cisila.
 # UP AND RUNNING
 ### CHICAGO, ILLINOIS, U.S.A
 ### 9:10AM, CST
-### OCTOBER 10TH, 2033
+### OCTOBER 11TH, 2033
 #### CISILA J. SIVETA, 24
