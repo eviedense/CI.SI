@@ -1,6 +1,6 @@
 # Hi.
 
-This is a collection of my writing for my writing project. You can find Parts 1, 2, and 3 along with some extra content here. Check EXTRA for INTERIM and DESOLATION, and find Parts Extra, Contract Killer, and Kasey's "Blurred" in WRITING, in the same place as Parts 1 2, and 3. 
+This is a collection of my writing for my writing project. You can find Parts 1, 2, and 3 along with some extra content here. Check EXTRA for INTERIM, DESOLATION Cisila's NOIR video game idea, and find Parts Extra 1 and 2, Contract Killer, and Kasey's "Blurred" in WRITING, in the same place as Parts 1, 2, and 3. 
 
 Check MISC INFO for other extra stuff that doesn't quite count as proper writing, including a full bio on the main character and her different versions. 
 
