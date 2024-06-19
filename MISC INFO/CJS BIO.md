@@ -118,9 +118,9 @@ With Lyla on her mind, Cisila thinks it might be a good idea to go out for dinne
 
 Cisila calls up Dan, and requests to meet the Dragons Patriarch. When she explains why, Dan realizes how terrible the situation is. He agrees, and the two head to the Dragons' current lair, an abandoned school. There, they meet the Dragons Patriarch, the murderer...
 
-Mikhail. Cisila can't believe it. The two stare at each other, tensions rising. Both of them realize who the other is. Taking Dan out of the fight, leaving him out cold, Mikhail engages Cisila in a fight.
+Mikhail. Cisila can't believe it. The two stare at each other, tensions rising. Both of them realize who the other is. Taking Dan out of the fight, leaving him out cold, Mikhail engages Cisila in a fight, and cue *Viper* from Lost Judgment for his first fight.
 
-Escaping, Cisila suddenly doesn't feel safe. Dan, now awake and still alive, assures her that this will get solved, quickly. But almost immediately, Cisila gets a message from Lyla. But it's not Lyla- it's *Mikhail.* He tells Cisila that he's taken Lyla, and to get her back, she's got to fight the Dragons. 
+Cisila gets a message from Lyla. But it's not Lyla- it's *Mikhail.* He tells Cisila that he's taken Lyla, and to get her back, she's got to fight the Dragons. 
 
 Finding the location that the Syndicate has taken Lyla to, an under construction tower, Cisila assaults the site. Fighting to the top, Cisila finds Lyla. 
 
@@ -128,15 +128,21 @@ Lyla attacks Cisila, revealing herself to be the Barracuda, the metal-clawed ass
 
 #### Wounded Beast
 
-Waking up in the Dragons' lair, the abandoned school, Cisila is tied to a chair, and in front of her- is Mikhail. Cisila attempts to question him, but he dodges every single question. Lyla has disappeared, and in desperation, Cisila asks what he's done with Lyla. Mikhail replies, "Nothing. She's just doing her job."
+Waking up in the Dragons' lair, the abandoned school, Cisila is met with Mikhail- and Lyla. Mikhail briefly tortures Cisila by bashing a hammer against her head, fracturing her skull. He cuts one of the wires coming out of her eye, where the Ultima organ anomaly is. It hurts like hell.
 
-Seizing the opportunity to escape when Mikhail leaves the room, Cisila cuts herself free of the ties, and attempts to escape. Fighting her way through the Dragons still in the Lair, Cisila finds herself in the old science room of the school, where Mikhail finds her again. The rain batters against the windows and the thunder rumbles. Cisila is forced to fight Mikhail.
+Mikhail picks up a sledgehammer, handing it to Lyla, and tells her to bash Cisila's head in. She approaches Cisila, and for a brief moment, it looks like she'll do it. A moment of tension ensues, before Lyla whips around and bashes Mikhail's head in, knocking him down for a brief moment. Lyla takes her chance, and frees Cisila, imploring her to run.
 
-She loses, barely escaping through a window. After escaping, Cisila collapses on the empty streets, in the rain, half dead. But someone lifts her up - someone helps her. It's Lyla. Quickly, Lyla takes Cisila to her apartment and attempts to patch her up - and attempts to explain what has happened.
+Cisila doesn't. Mikhail, getting up just as Cisila gets to the door, attacks Lyla. Cisila immediately turns around as her EXO activates, and sprints at Mikhail. Cue *Triplet After Triplet* for the second fight against Mikhail as lightning strikes, rain batters against the windows, and thunder strikes. 
 
-She was forced to work with Mikhail under threat of her family finding out she's still alive. Cisila learns that she never knew that much about Lyla...and she decides to withdraw from the investigation, even if for just a few days. Lyla isn't safe, and neither is she. They need help, and safety - Dani. Kasey. They can help.
+Lyla and Cisila lose. Mikhail leaves them to die in the rain, as the fight went outside. The two lie in the mud, dying. But one final thought comes to Cisila, and she gets Lyla to call Dani, before Cisila herself passes out.
+
+A week later, Cisila wakes up in the lighthouse. She finds Dani and Lyla there, who have become fast friends. The three plan to figure out how to find evidence to pin Mikhail as the murderer with solid proof, and Cisila remembers- she never took the folder from the police HQ, only photos of the note on it- the one telling the police to stop.
+
+Their goal now is to get that back, amidst an overtaken police headquarters. Syndicate teams disguised as SWAT officers are armed and waiting. Cue *Un altro appassionato* as they enter the headquarters, joined by Kasey. This is the first time the quartet has assembled, all with the same goal, the same understanding of the situation, and most importantly: Their fists.
 
 #### The Destination, but For Whose Sake?
+
+
 
 ### Part 2 - Adam and Eve - Early 2035
 
