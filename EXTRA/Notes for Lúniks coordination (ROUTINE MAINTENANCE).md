@@ -1,12 +1,9 @@
 # The *Platinum Halberd*
 The CSEP *Platinum Halberd* has four decks:
 
--A deck
-
--B deck
-
--C deck
-
+-A deck \
+-B deck \
+-C deck \
 and D deck.
 
 Each deck serves a different purpose.
