@@ -26,7 +26,7 @@ Cisila held up the asteroid, and the researcher stared at it. The first thing Ci
 "Our navigation systems are still operational, but they say we're..." Emdara sighed. "They say we're- in the middle of nowhere. We're off the route." Cisila felt her heart drop. That was the worst possible thing that could happen. If the *Halberd* had gone off course, they couldn't ensure everybody's safety. And even worse, if they were in the middle of nowhere, then that meant there were no routes near them. It sounded as if they were in deep space. "Now, I know that *sounds* bad, but I've heard of this happening before." Emdara continued, "The ship should be equipped with a way to get us back on route in the event of something like this. It just...requires a lot of work." He muttered. "In the mean time, we-" He stopped. Something had made him pause. "...The *fuck?*" He hissed over the system. "Shit," Steph muttered, "This is *bad.*" *No fucking shit!* Cisila's mind echoed. 
 
 # ---------[2]---------
-# ----[*Lost*]----
+# -------[*Lost*]-------
 ## -------[22:55, CDST]--------
 ## ----[August 5th, 2096]----
 ### -[The CSEP *Platinum Halberd*, Deep Space]-
