@@ -63,7 +63,7 @@ Everybody froze.
 *They woke up.*
 
 # ---------[3]---------
-# --[*Edge of Death*]--
+# --[*The Dead Survive*]--
 ## -------[23:20, CDST]--------
 ## ----[August 5th, 2096]----
 ### -[The CSEP *Silver Pike*, Deep Space]-
