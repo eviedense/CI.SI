@@ -110,5 +110,10 @@ Cisila shook her head. "I'm pretty sure the two Shuttles have pre-determined loc
 
 Solen looked up, into Cisila's eyes. "It means they're learning." He said, dreading the idea.
 
--
+What Solen was suggesting...was that the zombies, controlled by the worms, seemed to be gaining some motor control.
 
+More than what the group had seen.
+
+The amount of time to live seemed to decrease dramatically as the group sunk into realization.
+
+-
