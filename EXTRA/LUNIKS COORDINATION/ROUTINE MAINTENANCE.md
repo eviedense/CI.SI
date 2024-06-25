@@ -33,6 +33,8 @@ The *Platinum Halberd's* sister ship. It was floating in deep space. Completely 
 
 *How* had it gotten here? How had *they* gotten here? And worse...what had happened to it?
 
+<sup><sub>Note: Cue in The Vanishing Suite from FAR CRY 6 x STRANGER THINGS</sub></sup>
+
 # ---------[2]---------
 # ----[*Emergency*]----
 ## -------[22:55, CDST]--------
