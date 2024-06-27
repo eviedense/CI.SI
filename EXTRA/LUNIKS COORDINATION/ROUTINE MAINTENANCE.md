@@ -163,7 +163,7 @@ The heavy metal head of a hammer hit her in the back of the head, and immediatel
 
 # ---------[6]---------
 # -----[*Hunger*]-----
-## -------[00:55, CDST]--------
+## -------[00:35, CDST]--------
 ## ----[August 6th, 2096]----
 ### -[The CSEP *Silver Pike*, Deep Space]-
 ### -[Stephanie Lània, 25]-
