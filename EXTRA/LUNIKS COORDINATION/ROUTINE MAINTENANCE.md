@@ -160,3 +160,10 @@ She entered the atrium of the ship, and saw that it was in far less disorder tha
 But, too fast for her to realize, a shadow loomed over her.
 
 The heavy metal head of a hammer hit her in the back of the head, and immediately, she was unconscious. She didn't feel it, but blood trickled down from the injury.
+
+# ---------[6]---------
+# -----[*Hunger*]-----
+## -------[00:55, CDST]--------
+## ----[August 6th, 2096]----
+### -[The CSEP *Silver Pike*, Deep Space]-
+### -[Stephanie Lània, 25]-
