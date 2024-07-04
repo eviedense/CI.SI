@@ -183,7 +183,7 @@ On her first mission as DELTA-SIX in Delta Squad, Cisila is sent on a stealth mi
 
 #### A Fleeting Dream
 
-### Part Extra - Small Town Woes - 2036
+### Part 4 - Small Town Woes - 2036
 
 #### Lakelight, Buried in Shadow
 
@@ -197,7 +197,7 @@ On her first mission as DELTA-SIX in Delta Squad, Cisila is sent on a stealth mi
 
 #### Against the Dream, the Nightmare
 
-### Part Extra 2 - Endless Paradise - 2036
+### Part 5 - Endless Paradise - 2036
 
 #### Dim And Boring, as Usual
 
@@ -211,7 +211,7 @@ On her first mission as DELTA-SIX in Delta Squad, Cisila is sent on a stealth mi
 
 #### Tip of The Spear, Your DESTINY
 
-### Part Extra 3 - Reason for the Fight - 2036
+### Part 6 - Reason for the Fight - 2036
 
 #### Night & Day 
 
