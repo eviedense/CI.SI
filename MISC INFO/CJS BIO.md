@@ -10,8 +10,8 @@
 ### Other
 #### Nicknamed "Cisi", "V" (by Dani & The Brotherhood), and referred to by her last name aswell
 #### Current residence is Chicago, Illinois
-#### Outfit 1 (Part 1, 2, Last quarter of 3): Purple T-shirt, sapphire amulet, grey cargo shorts and a pair of sports shoes (primarily white with purple as a secondary) leather hand wrap for her right hand (navy blue), and a smartwatch on her left wrist
-#### Outfit 2 (Part Extra, onwards): Purple undershirt, reaches to her neck, darker purple button-up long sleeve, harness with revolver holsters, dark grey cargo pants with a toolbelt and dropleg holster for SOCOM MK23, hiking shoes or combat boots depending on environment - additionally, silver ring on right hand ringfinger, fingerless leather gloves and sapphire amulet
+#### Outfit 1 (Part 1, 2, Last quarter of 3, appears every so often afterwards): Purple T-shirt, sapphire amulet, grey cargo shorts and a pair of sports shoes (primarily white with purple as a secondary) leather hand wrap for her right hand (navy blue), and a smartwatch on her left wrist
+#### Outfit 2 (Part 4, onwards): Purple undershirt, reaches to her neck, darker purple button-up long sleeve, harness with revolver holsters, dark grey cargo pants with a toolbelt and dropleg holster for SOCOM MK23, hiking shoes or combat boots depending on environment - additionally, silver ring on right hand ringfinger, fingerless leather gloves and sapphire amulet
 
 *Parts 1, 2, 3: Aged 24-25*
 
