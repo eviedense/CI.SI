@@ -223,7 +223,7 @@ On her first mission as DELTA-SIX in Delta Squad, Cisila is sent on a stealth mi
 
 #### Back Together Again
 
-#### Dig Your Heels In
+#### End of the Syndicates - The Dissolution
 
 #### A Deadly Struggle, to Throw Away Your Mask
 
