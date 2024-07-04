@@ -209,4 +209,22 @@ On her first mission as DELTA-SIX in Delta Squad, Cisila is sent on a stealth mi
 
 #### Kick Yourself Into Gear
 
-#### Tip of The Spear
+#### Tip of The Spear, Your DESTINY
+
+### Part Extra 3 - Reason for the Fight - 2036
+
+#### Night & Day 
+
+#### Carbine Industries, & Maria
+
+#### Hidden Between the Walls of Carbine
+
+#### Syndicate Problems, and the Cargo Ship
+
+#### Back Together Again
+
+#### Dig Your Heels In
+
+#### A Deadly Struggle, to Throw Away Your Mask
+
+#### Undefeatable
