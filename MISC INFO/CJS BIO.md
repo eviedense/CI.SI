@@ -75,7 +75,7 @@ Not understanding how to use the powers, and now alone, Cisila left Montana, whe
 
 Cisila moved to Chicago, now understanding her abilities, and was hellbent on ending Martin Palmer. Years passed, and eventually, she got a grip on how to use Construct - she made herself a blade, throwing knives, and attempted to construct a firearm. It didn't work. She knew how to make a firearm, having studied them out of interest, but for whatever reason, she could never get it to work. And that too, caused her stress. She thought she'd never be good enough to make one. 
 
-### Part 1 - Vendetta, and the Spider's Web - 2034
+## Part 1 - Vendetta, and the Spider's Web - 2034
 
 #### Day & Night
 
@@ -144,7 +144,7 @@ Their goal now is to get that back, amidst an overtaken police headquarters. Syn
 
 
 
-### Part 2 - Adam and Eve - Early 2035
+## Part 2 - Adam and Eve - Early 2035
 
 #### From the Garden of Eden...
 
@@ -164,7 +164,7 @@ One night, Lyla tails a PALMER-EDEN convoy, which stops in some kind of warehous
 
 #### Unwavering Belief
 
-### Part 3 - Hell on Earth, And The End of Eden - Late 2035
+## Part 3 - Hell on Earth, And The End of Eden - Late 2035
 
 #### Alone, Yet Surrounded
 
@@ -183,7 +183,7 @@ On her first mission as DELTA-SIX in Delta Squad, Cisila is sent on a stealth mi
 
 #### A Fleeting Dream
 
-### Part 4 - Small Town Woes - 2036
+## Part 4 - Small Town Woes - 2036
 
 #### Lakelight, Buried in Shadow
 
@@ -197,7 +197,7 @@ On her first mission as DELTA-SIX in Delta Squad, Cisila is sent on a stealth mi
 
 #### Against the Dream, the Nightmare
 
-### Part 5 - Endless Paradise - 2036
+## Part 5 - Endless Paradise - 2036
 
 #### Dim And Boring, as Usual
 
@@ -211,7 +211,7 @@ On her first mission as DELTA-SIX in Delta Squad, Cisila is sent on a stealth mi
 
 #### Tip of The Spear, Your DESTINY
 
-### Part 6 - Reason for the Fight - 2036
+## Part 6 - Reason for the Fight - 2036
 
 #### Night & Day 
 
