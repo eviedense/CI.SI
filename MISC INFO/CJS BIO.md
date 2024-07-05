@@ -243,6 +243,6 @@ Cisila isn't so sure he can.
 
 #### End of the Syndicates - The Dissolution
 
-#### A Deadly Struggle, to Throw Away Your Mask
-
 #### Undefeatable
+
+#### A Deadly Struggle
