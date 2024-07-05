@@ -1,8 +1,8 @@
 # DESOLATION
 ### OUTSKIRTS OF WHITEFISH, MONTANA, U.S.A
 ### 7:05PM, MST
-### AUGUST 15TH, 2029
-#### CISILA J. SIVETA, 20
+### AUGUST 15TH, 2028
+#### CISILA J. SIVETA, 19
 
 She was sitting in the living room, alone. Around her, the dim light of the setting sun shone in from the wide windows. Her mother was late, again. All Cisila could do was *wait.* The living room was silent, other than the relentless ticking of an old clock up on the wall. She checked her watch, and noticed the time. *She's really late today...* Cisila thought. She'd never been this late before, had she? Cisila searched through her head, but couldn't find any time where her mother was *this* late from work. It made her worry. And when she started to worry, things got bad. Almost immediately, her head was flooded with strange thoughts. *Did something happen?* Her lip twitched. *Am I sitting here waiting for nothing? Is she dead?* Unreasonable thoughts floated through her mind. She breathed in, and out. *Stop. Nothing's happened to her.* Cisila told herself. *And nothing WILL happen to her.* She shook her head and sighed. The sky outside was turning a deep purple-orange as the sun set. Silently, Cisila got up and walked up to the window facing the front of the house, and peered outside. 
 
