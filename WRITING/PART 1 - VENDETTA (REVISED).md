@@ -435,7 +435,7 @@ Martin Palmer, CEO and founder of PALMER-EDEN Pharmaceutical & Technological Adv
 
 She wasn't sure. The uncertainty stirred in her as she stared out at the lake. If she was doing it for herself...then she felt she was no better than Mikhail. Not only that, but every time she killed someone now...a little bit of her morality was bent out of shape. If she kept going, Cisila could become worse than Mikhail. 
 
-Quietly, to herself, she made a choice. No more people would die at her hands- or at least, she would try her hardest not to let that happen. Injuries and the regret that followed a fight were far more than enough, and had so many more repercussions as opposed to death. Death was the easy way out. Death was like snapping a wire in two, severing a connection that was needed. The SwAT teams that awaited the group at the police station didn't know the truth. They didn't deserve to die. And neither had the Syndicate members she'd stabbed, shot, or beat to death.
+Quietly, to herself, she made a choice. No more people would die at her hands- or at least, she would try her hardest not to let that happen. Injuries and the regret that followed a fight were far more than enough, and had so many more repercussions as opposed to death. Death was the easy way out. Death was like snapping a wire in two, severing a connection that was needed. The SWAT teams that awaited the group at the police station didn't know the truth. They didn't deserve to die. And neither had the Syndicate members she'd stabbed, shot, or beat to death.
 
 # 15
 # BREAK IN, BREAK OUT
