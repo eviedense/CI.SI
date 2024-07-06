@@ -23,14 +23,7 @@ The only place, aside from her apartment, where she felt safe.
 
 -
 
-# 2
-# BEACON OF ILLINOIS
-### CHICAGO, ILLINOIS, U.S.A
-### 1:51AM, CST
-### SEPTEMBER 29TH, 2033
-#### CISILA J. SIVETA, 24
-
-Cisila gently sipped her tea. Her shoulder, leg, and stomach had been patched up. The bullets lodged in there had been removed. She wasn't sure how, as Dani had put her out cold before they bothered. Cisila wasn't going to bother thinking about what Dani did- all she was concerned with was her leg. It wouldn't let her get up, still, so she was stuck sitting in the Lighthouse. She put the teacup back down on its plate and leaned back in the old armchair she was sitting in, and her eyes scanned the circular interior of the first floor of the lighthouse. It was rather dim, and cluttered. Old furniture took up every corner, stacked up and useless. But a few pieces of furniture still sat freely, such as Cisila's chair and the table next to her. A small workbench was propped up against a wall, tools and parts strewn about its countertop. A dim kitchen inset on the other side of the floor sat quietly, its sink filled with still unwashed dishes. A few steps away from it, the spiral staircase that went up to the top of the lighthouse stood in the shadows. Cisila had only been up there a few times, and it was usually during the day. *Maybe I could head up there if I get up...* She thought, and she tried to move her leg a bit. Suddenly, she felt the life in it return. She pushed her foot down and bounced her leg, beginning to feel the pins and needles as if she'd been sitting on her leg for an hour. As she tried to get her leg to feel normal again, her phone buzzed. Pulling it out, Cisila saw that she had gotten a message- from Mikhail. Her ex. "Huh...?" She mumbled to herself. Why was Mikhail messaging her? They didn't really talk to each other anymore, but it wasn't because of anything bad. Cisila had just realized that they didn't work. Something felt off to her. But that was neither here nor there, so she opened up the message and read it. *"Sorry for random message at this time. How are you?"* Mikhail had typed. Her eyes scanned the message, *Little weird...* but she thought no more of it, and responded. *"Doing good. Little tired from tonight, but it's nothing to worry about."* Before she tapped the send button, she added on, *"Why the sudden message?"* to the end of her own. Pushing send, she put her phone down again and looked down at her leg. The feeling of pins and needles were slowly fading away, and she could feel her leg again. Cisila rubbed her eyes and slowly got up, shoving her phone into her cargo pants' pocket. 
+Only an hour later, Cisila gently sipped her tea. Her shoulder, leg, and stomach had been patched up. The bullets lodged in there had been removed. She wasn't sure how, as Dani had put her out cold before they bothered. Cisila wasn't going to bother thinking about what Dani did- all she was concerned with was her leg. It wouldn't let her get up, still, so she was stuck sitting in the Lighthouse. She put the teacup back down on its plate and leaned back in the old armchair she was sitting in, and her eyes scanned the circular interior of the first floor of the lighthouse. It was rather dim, and cluttered. Old furniture took up every corner, stacked up and useless. But a few pieces of furniture still sat freely, such as Cisila's chair and the table next to her. A small workbench was propped up against a wall, tools and parts strewn about its countertop. A dim kitchen inset on the other side of the floor sat quietly, its sink filled with still unwashed dishes. A few steps away from it, the spiral staircase that went up to the top of the lighthouse stood in the shadows. Cisila had only been up there a few times, and it was usually during the day. *Maybe I could head up there if I get up...* She thought, and she tried to move her leg a bit. Suddenly, she felt the life in it return. She pushed her foot down and bounced her leg, beginning to feel the pins and needles as if she'd been sitting on her leg for an hour. As she tried to get her leg to feel normal again, her phone buzzed. Pulling it out, Cisila saw that she had gotten a message- from Mikhail. Her ex. "Huh...?" She mumbled to herself. Why was Mikhail messaging her? They didn't really talk to each other anymore, but it wasn't because of anything bad. Cisila had just realized that they didn't work. Something felt off to her. But that was neither here nor there, so she opened up the message and read it. *"Sorry for random message at this time. How are you?"* Mikhail had typed. Her eyes scanned the message, *Little weird...* but she thought no more of it, and responded. *"Doing good. Little tired from tonight, but it's nothing to worry about."* Before she tapped the send button, she added on, *"Why the sudden message?"* to the end of her own. Pushing send, she put her phone down again and looked down at her leg. The feeling of pins and needles were slowly fading away, and she could feel her leg again. Cisila rubbed her eyes and slowly got up, shoving her phone into her cargo pants' pocket. 
 
 She walked slowly over to the stairs and put her foot onto the first step. Climbing up the stairs slowly, the metal steps creaked underneath her. One step after the other, she went higher and higher, around and around, before getting to the top. The giant light and its controls stood dormant in the lantern room, but she just ignored them. Turning the handle on the door to the gallery deck, she stepped outside. The cold air of the night hit her immediately, and Cisila noticed that it had stopped raining. In fact, pretty quickly, the clouds had cleared. The moon was reflecting light brightly. The lighthouse was situated a fair bit away from Chicago, and from here, Cisila could see Lake Michigan in all its glory, and, if she took a few steps to the left, she could see Chicago. Quietly staring at the Lake, she sighed. Dejectedly, she pulled out her phone again. It was almost two in the morning- she'd either have to leave soon, or forget going to work tomorrow. *And not going to work tomorrow means...* Cisila's brain started to say to her, but she shut the thought down. A small piece of anxiety bubbled in her stomach as her brain forcefully reminded her. And then when she realized she'd have to get up in the morning...Cisila felt extremely tired, out of nowhere. *Two in the morning.* She reminded herself. Dejectedly, she pulled a lighter out of her back pocket and followed up by pulling a small pack of cigarettes out of one her cargo pants' lower pockets. Opening it, she saw there was only one cig left. She stared at it, and her brain quickly flew through whether or not she should take it. *Take it. Don't take it. Take it. Don't take it.* It was like fighting a losing battle uphill. Relenting, she raised the pack to her mouth and bit down lightly on the end of the last cigarette, before withdrawing the pack. Cisila raised the lighter to the tip of the cig, and flicked the spark wheel. *Flick.* One firm spark caused a flame to burst out, and she lit the cigarette, hiding the flame with her free hand. As she quietly stood there smoking, her phone buzzed again. Pulling it out, she saw that Mikhail had replied. She blinked slightly at how bright her phone was (*Should turn that down...*), before reading Mikhail's new message. *"Don't mean to scare you, but it doesn't look like you're home. You OK?"* Cisila's brow furrowed as she read this. *What the hell?* She drew her phone closer to her face, *I'm not hallucinating, right?* Scanning the message again, she used her free hand to pull the cig out of her mouth again, letting out a cloud of smoke. Quickly, she texted Mikhail back. *"Are you AT my apartment? Why are you there?"* And she tapped send. Almost immediately, Mikhail started to type, as indicated by the three bubbles. *"Yeah. I wanted to check up on you. Sorry."* 
 
@@ -38,7 +31,7 @@ Silently, she texted back. *"It's fine. I'm out right now. Check on me tmrw. Wil
 
 After a few more minutes of silence, she snuffed out the cigarette on an empty ashtray sitting against a window sill. She inhaled slowly, and exhaled. Shutting her eyes, Cisila decided she was going to go to work. *No reason not to. Nothing to be scared about. Why even get scared about work when you do much riskier things?* That was always what she told herself, but no matter what, it didn't seem to work. But it didn't matter. As she made her way back down the lighthouse, she continued trying to shut her brain off. Stepping out of the lighthouse and locking it behind her with Dani's spare key, she walked her way down the dirth path to a small garage. The land around her was completely dark, and the only lights were along the asphalt street a few hundred metres down the dirt road. Heading up to the dirt garage, she pulled the garage door open and stepped in, turning on the lights. Inside the garage, Cisila's motorcycle sat silently. *Knew they'd bring it here.* Whenever Cisila got badly injured enough to get taken to the Lighthouse (it happened frequently), Dani would pick up Cisila's motorcycle and leave it in the garage. Lying on the seat was Cisila's satchel, and her helmet. She strode over to it and pulled the helmet on slowly, and pulled her satchel over her shoulder. *They're smart enough to bring my stuff, too. Thank God for Dani.* Cisila thought, as she swung a leg over her motorcycle. Climbing on, she turned the key to get the bike's engine going. It flared to life beneath her, and its singular light flooded the area in front of her. She drove her heel against the kickstand, and revved the motorcycle. *Alright. Time to get outta here.* And as she rolled the motorcycle out of the garage, feeling it rumble beneath her, all her worries faded away- if even just for a moment. Cisila sped up, and she drove along the dirt road, heading for the highway. Back home. For now.
 
-# 3
+# 2
 # DAY IN, DAY OUT
 ### CHICAGO, ILLINOIS, U.S.A
 ### 7:30AM, CST
@@ -61,7 +54,7 @@ Whatever the rest of PALMER-EDEN's response was, she didn't get to hear it. The 
 
 "Well, I can help out with this, but...not right now. I don't think it's a good idea for you to work looking like this. You've still got some dried blood on your face." Cisila's eyebrows furrowed, and she looked worried. "Really? Ah, shit...I..." She leaned back, but Lyla reassured her, "It's fine. You don't look like you killed someone, at least." Cisila nodded, and responded, "That's good at least. If- if I can get cleaned up, I still want to work. I told myself I had to." and she slowly got up. Lyla got up aswell, "You sure? You look dead tired, Cisila." she pointed out. That was true, yes, but Cisila was determined to work. "I'm good. I'm fine." She waved Lyla away, "I'll...I'll go to the washroom and clean up." Lyla clicked her tongue. "If you say so. Come to talk to me later." And Cisila nodded, heading to the bathroom.
 
-# 4
+# 3
 # ZERO HOUR
 ### CHICAGO, ILLINOIS, U.S.A
 ### 4:30PM, CST
@@ -84,7 +77,7 @@ She climbed in through a window, and, having notified Kasey, was able to get in 
 
 Cisila reclined in her chair, and pulled out her phone. The sun was beginning to set, and in Kasey's office, no lights were on. Shadows cast by the city outside loomed around Cisila and Kasey, as the sun lowered slowly. Kasey clicked her tongue suddenly, "Bingo." she said. Kasey turned her laptop towards Cisila, and the screen displayed a picture that matched the man's look exactly. "This is him, a couple months ago." Kasey explained. "It's a news article. An exposé article written by a news reporter. It was pulled off the internet, but," Kasey slid a finger down the trackpad of the laptop, scrolling down the article. "I found it. It's definitely him." Cisila's eyes scanned the article, and, to her, it confirmed that it was indeed the man she was looking for. "It's got to be him." She said. "There's no way it isn't." Crossing her arms, she leaned back in her chair, "Which means we have another problem..." Cisila said, and Kasey nodded. "Who killed him?" Kasey asked. "And why?" Cisila sighed, tapping a finger on her forearm while her arms were crossed. "I think we need to figure out if there's something going with the three Syndicates." She said. "If there's something going on with them, we can rule it out as a casualty of gang warfare. That narrows it down, doesn't it?" Kasey turned her laptop back towards herself, and stretched. "I- think so." She said, stretching her arms over her head. "But there's kind of only one way to confirm that..." Cisila cocked her head, "How?" She asked. "The police keep a sharp eye on the Syndicates." Kasey explained, "If you can get into their headquarters, into their evidence room or some shit- I bet you'll find something." Cisila nodded. "Right. I guess I'll get Dani to take care of that." She said, but Kasey shook her head. "I think you should do it. Dani's not gonna be inclined to help." Cisila pursed her lips. "Right...fine." She uncrossed her arms and got up, "I'll go get some sleep, then. I'll message you when I'm about to leave for the station, so you know." Kasey nodded, and said, "Good luck.". Cisila opened one of the many windows in Kasey's office and leaped out, using her grapple gun to propel herself across the street. For now, she'd head back home.
 
-# 5
+# 4
 # DECISIONS
 ### CHICAGO, ILLINOIS, U.S.A
 ### 8:30PM, CST
@@ -107,7 +100,7 @@ Hours later, she was now at her small kitchen inset. It was now the morning of t
 
 "Well, first and foremost, it's not going to be me. I've got too many things to do today. I'll get Zephyr to go with you- he's pretty suited for this kind of thing, I think." *Zephyr.* She recognized that name. It had something to do with Kasey... "He'll follow you like a shadow until you get attacked- which, let's be honest, is a surefire occurrance- and he'll jump in to help you. Once you get their attention, you need to find out where in the casino they're keeping that thing. Should be simple." Dani continued to explain, before Cisila suddenly blurted out, "So- hang on-" She shook her head, "I'm just going to waltz in like I own the place?!" She exclaimed. "Yes. You're not sneaking through there. Security's tight, y'know? Not worth it to sneak through." Dani replied, "Better to bust some skulls than to waste time." Cisila thought about this- and realized Dani was correct. At least, from her point of view. There wasn't any time to waste- they might destroy the evidence in the folder. Realizing this, and how desperate the man seemed, Cisila got up. "Got it, then. I think I'll just get this over with now. Can you get that guy ready to follow me?" She asked, firmly. Her mind was set. "What?" Dani seemed slightly shocked. "Uh- Okay. I was thinking you'd do a little later in the day..." Cisila shook her head, "No. Hell no. This is top priority. I've got a thing or two to ask those Syndicate fucks anyways." she asserted. "I'm going." *This is a terrible idea.* Her mind echoed. *No, no it's not...is it? It is. No, it's not.* The inside of her mind was like a waging war between *Bad idea* and *Just get it over with*, and she had decided to get it over with. Quickly, she got ready. Pulling on the jacket she used for going out as V, she walked into her bedroom and pulled up the loose floorboard where she hid her mask. It sat there silently. And she picked it up, and stashed it back inside her satchel, of which she'd already pulled on. Cisila pulled open the window in her bedroom and climbed out, shutting it behind her. The cool air of midday September hit her pretty fast, as she pulled her mask on. It clicked and seemed to fasten to her face easily, as she leaped off the fire escape and fired her EXO's grapple just as she had a couple nights previously. She was heading straight for High-Stakes.
 
-# 6
+# 5
 # WORK IT, FIX IT, ROCK
 ### CHICAGO, ILLINOIS, U.S.A
 ### 2:27PM, CST
@@ -132,7 +125,7 @@ Cisila nodded. "Right. Why?" Dan rubbed his forehead slowly, "I...have a lot to 
 
 She'd have to pass the by members she'd killed. Something about that felt off. A little doubt had cemented itself in her head, but it had no voice yet.
 
-# 7
+# 6
 # SWEETHEART
 ### CHICAGO, ILLINOIS, U.S.A
 ### 8:07AM, CST
@@ -159,7 +152,7 @@ Lyla didn't respond, but her grip on Cisila's shoulder tightened a bit. "...I ne
 
 Time passed. It didn't feel like it, though. Cisila felt as though she was frozen in time, against Lyla's shoulder. She cried even harder, feeling the immense weight of all her stress press down on her. It was like years worth of built up stress was flowing out of her eyes as tears. Cisila had never had time to think, to slow down and let herself breathe. But Lyla *let* her. And Lyla seemed to understand Cisila's problem. The overwhelming stress of *everything* seemed to compress down on Lyla aswell, but what it was for her, Cisila didn't know. Cisila didn't *care.* She clung onto Lyla, and slowly felt herself calm down. The tears begin to slow down, and she sniffled. They were both in silence, and all Cisila could hear was Lyla's breathing. It was a little shaky. Lyla slowly set her left hand down on the side of the couch, putting something down. *Probably her phone...* Cisila thought to herself. She hiccuped a little, and sat up. Swallowing, she rubbed her eyes. "S-Sorry about that." She mumbled. "Thanks for-" What would she even say? 'Thanks for letting me sob into your shoulder'? She sat there with her mouth open. Lyla nodded, "No worries. No. Seriously." and she hugged Cisila properly. "...I think *I* needed that." Lyla awkwardly giggled. Cisila sniffled again, "...Yeah. Yes. Thank you." and she pulled herself out of Lyla's arms. Getting up, she stretched, "...Ooh, yikes..." she muttered, feeling her spine crackle. She rubbed her nose, and turned towards Lyla, "Look, uh..." Cisila began to say, "...I can...put something on. To watch." Awkwardly checking her watch, "...s'kinda late, though..." Cisila mumbled. Lyla shook her head. "No biggie. It's Saturday tomorrow, isn't it? We're closed. I can stay." She said happily. Cisila blinked. *Stay?* Lyla wanted to *STAY?* Cisila suddenly jerked her head into a nod, "YES!" She yelped. "Absolutely! Okay, yeah...yeah!" Cisila already felt much happier. But having Lyla stay? That made her feel the most happy she'd felt in *ages.* Ever since the first day she'd talked to Lyla, two years ago, she hadn't been able to reach that level of happiness. But now she'd surpassed it. *Far* surpassed it. And that was enough for her.
 
-# 8
+# 7
 # TRIP & FALL
 ### CHICAGO, ILLINOIS, U.S.A
 ### 12:07PM, CST
@@ -192,7 +185,7 @@ Knocking down another officer, Cisila sprinted towards the maintenance door. Cra
 
 But before she hit the ground, she fired her grapple gun. In the blink of an eye, she disappeared.
 
-# 9
+# 8
 # TAKE A BREAK
 ### CHICAGO, ILLINOIS, U.S.A
 ### 3:26PM, CST
@@ -219,7 +212,7 @@ The notebook detailed most of the interview in dot jots, and most of it was stuf
 
 *I think this is just what I need. It has to be.*
 
-# 10
+# 9
 # MY PLACE TO HIDE
 ### CHICAGO, ILLINOIS, U.S.A
 ### 5:31PM, CST
@@ -250,7 +243,7 @@ She'd give the other necklace to Lyla.
 
 That much she knew.
 
-# 11
+# 10
 # THE SPIDER'S WEB
 ### CHICAGO, ILLINOIS, U.S.A
 ### 2:00PM, CST
@@ -303,7 +296,7 @@ But as she sprinted away, parkouring her way across the buildings, one thing sto
 But if push came to shove, neither was Cisila.
 
 
-# 12
+# 11
 # ASSAULT UNDER THUNDER
 ### CHICAGO, ILLINOIS, U.S.A
 ### 6:57PM, CST
@@ -359,7 +352,7 @@ Her fist slammed straight into Lyla's jaw. There was a stiff *crack* as Lyla's m
 
 Lyla sliced through the air more, her footwork bringing her closer to Cisila with each slice. Cisila continued to back up and dodge out of the way. Cisila realized the plastic chair Lyla was tied to was behind her. If she was fast enough, she could use it to interrupt Lyla's attack. Grabbing onto it as she got close enough, Cisila catapulted the plastic chair straight it Lyla with as strong of a throw as she could muster. Lyla broke through the chair as it was flung at her and lunged at Cisila once more. Cisila lunged forward aswell, thrusting her fist forward. Lyla's claws went straight into Cisila's stomach as Cisila's fist connected with Lyla's face. Cisila's eyes went wide. And, strangely...so did Lyla's. Blood seeped through Cisila's purple shirt, staining it. Lyla was frozen. Cisila didn't feel like she could move. Suddenly, she coughed. Blood spat out of her mouth, and Lyla flinched. She pulled her claws out in a jolted motion, stumbling back from Cisila. Cisila coughed up more blood. Her eyes her wide. She looked down at her hands. *I'm...going to die.* She realized. It was all too sudden. "Cisila-" Lyla sputtered. "Cisila..." Lyla couldn't speak. Her voice seemed to be cracking. "...Oh, *fuck*..." She whispered to herself. What had happened to Lyla...? Cisila began to hear the loud, sharp and piercing sound of buzzing in her ears. She was losing a lot of blood. Cisila looked up at Lyla, and through her yellowing vision, she could barely see Lyla. Cisila opened her mouth to say something, but words eluded her. Her legs gave out. She hit the floor hard, and as her head smashed against the concrete, she was suddenly out cold.
 
-# 13
+# 12
 # WOUNDED BEAST
 ### CHICAGO, ILLINOIS, U.S.A
 ### 12:01AM, CST
@@ -405,7 +398,7 @@ Lyla shook Cisila. "Fuck." She hissed. "Motherfucker...why...?!" But Cisila was 
 
 Lyla collapsed next to Cisila. 
 
-# 14
+# 13
 # REBOOT
 ### CHICAGO, ILLINOIS, U.S.A
 ### 9:10AM, CST
@@ -444,7 +437,7 @@ She wasn't sure. The uncertainty stirred in her as she stared out at the lake. I
 
 Silently, as she stared out at the horizon, she made a choice. No more people would die at her hands- or at least, she would try her hardest not to let that happen. Injuries and the regret that followed a fight were far more than enough, and had so many more repercussions as opposed to death. Death was the easy way out. Death was like snapping a wire in two, severing a connection that was needed. The SWAT teams that awaited the group at the police station didn't know the truth. They didn't deserve to die. And neither had the Syndicate members she'd stabbed, shot, or beat to death.
 
-# 15
+# 14
 # BREAK IN, BREAK OUT
 ### CHICAGO, ILLINOIS, U.S.A
 ### 11:25AM, CST
