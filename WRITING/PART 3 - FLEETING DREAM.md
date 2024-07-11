@@ -19,16 +19,18 @@ Palmer stared at her. If he had words, he refused to say them. And Cisila just k
 "You choose to ignore all of it. What is *fucking* wrong with you?" She asked. "What makes a person like you ignore people? You preach that your products will improve life, but behind everyone's backs, it's all fake. You just keep making everything worse, and in ways people will never see or understand. The people you killed, mutilated, or...brainwashed..." Cisila blinked, forcing her feelings down. "They're not even people to you." She breathed in. \
 "But *you* aren't a real person anymore." She hissed. "You feel no remorse. Not even when the one you're ordering killed is your friend. Someone who had a family." The two continued to circle, while Palmer just...stared. "How does that *fucking* happen?" She asked again. Palmer opened his mouth, but he didn't speak. He slowly shut it. It was like Cisila had back him to a corner, and there was nothing he could do. Confronted by the personification of his problems, Palmer could no longer run. 
 
-Instead, Palmer shook his head. "FUCK THIS!" he screamed, sprinting at Cisila. She felt herself go numb as she realized that he couldn't see reason. Despite the fact that she wanted to kill him, there was a part of her that knew it wasn't right. But as she felt herself drift away, she automatically caught and countered Palmer's last ditch attack. She whirled him around towards the edge and pushed her leg against his back, putting all of her strength into *pulling his arm off.* He fought back as hard as he could, but nothing stopped her.
+Instead, Palmer shook his head. "FUCK THIS! FUCK **YOU!**" he screamed, sprinting at Cisila. She felt herself go numb as she realized that he couldn't see reason. Despite the fact that she wanted to kill him, there was a part of her that knew it wasn't right. But as she felt herself drift away, she automatically caught and countered Palmer's last ditch attack. She whirled him around towards the edge and pushed her leg against his back, putting all of her strength into *pulling his arm off.* He fought back as hard as he could, but nothing stopped her.
 
 The cybernetic arm whirred and screeched in protest before it suddenly ripped apart at the shoulder joint. Palmer's face went chalk white. Cisila pushed him off the edge with her foot, and threw down his right arm. \
-Peering over the edge, Cisila saw Martin Palmer plummet towards the ground. Quietly, she shut her eyes, and let out a deep sigh.
+Peering over the edge, Cisila saw Martin Palmer plummet towards the ground. Quietly, she shut her eyes, and let out a deep sigh. It felt like she was full of energy just a moment ago, and it had all been sapped. There was a gap in her feelings, and in the back of her head, she figured it out.
 
 *That didn't feel worth it.* \
 *It didn't feel like I got revenge for anyone.*
 
-Opening her eyes back up, she looked at her hands. Her knuckles were bloodied. Slowly, she looked up at the sky, lowering her hands. *I don't know if this is how you wanted it, Mom, but I did it.*
+Opening her eyes back up, she looked at her hands. Her knuckles were bloodied. Slowly, she looked up at the sky, lowering her hands. The only person she'd done this for couldn't even tell her if she'd done a good job. Or if it was even right. But even then, Cisila couldn't get her mother out of her head. This had all been for her, and in a flash, it was over.
 
 *I hope you aren't disappointed in me.*
+
+Cisila slowly sat down at the edge of the helipad.
 
 -
