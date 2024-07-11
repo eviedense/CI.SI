@@ -27,7 +27,7 @@ Peering over the edge, Cisila saw Martin Palmer plummet towards the ground. Quie
 *That didn't feel worth it.* \
 *It didn't feel like I got revenge for anyone.*
 
-Opening her eyes back up, she looked at her hands. Her knuckles were bloodied. Slowly, she looked up at the sky, lowering her hands. *I don't know if it what's you wanted, Mom, but I did it.*
+Opening her eyes back up, she looked at her hands. Her knuckles were bloodied. Slowly, she looked up at the sky, lowering her hands. *I don't know if this is how you wanted it, Mom, but I did it.*
 
 *I hope you aren't disappointed in me.*
 
