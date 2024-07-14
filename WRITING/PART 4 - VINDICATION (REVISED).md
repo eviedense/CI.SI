@@ -1,5 +1,5 @@
 # 1
-# THRILL OF THE FIGHT!
+# Thrill of The Fight!
 ### CHICAGO, ILLINOIS, U.S.A
 ### 10:32PM, CST
 ### NOVEMBER 1ST, 2035
@@ -45,7 +45,7 @@ Cisila stared at her with confusion etched into her face. Her mouth was open a l
 -
 
 # 2
-# PROBLEM UNSOLVED
+# Problem Unsolved
 ### CHICAGO, ILLINOIS, U.S.A
 ### 11:10PM, CST
 ### NOVEMBER 1ST, 2035
@@ -55,3 +55,10 @@ Cisila pulled her face out of her hands again and picked up her phone. She opene
 Lyla breathed in deeply. "It's- it's nothing. I'm just...it might not take just a month. I could be gone for a lot longer, and I..." she paused again. "I just want you to be happy, so if there's...someone else you're happy with, that's- that's cool." She muttered. "Right..." Cisila said, feeling down. "Thank you." Lyla sighed, and finally finished the conversation. "Look- I love you. But I'm going to be gone for so long, and I..." Cisila raised an eyebrow in confusion, before Lyla suddenly dropped a bomb. "I might not come back." Lyla said. "What?" Cisila said, her expression going from the numb sadness she was feeling to worry. Confusion. "Lyla- what?" She repeated. "Lyla, what the fuck do you mean?! You-" But she was met with the beep of a hang up. She was left sitting in her chair with the phone up to her ear, frozen. *What does she mean?* Her mind echoed. *What could that possibly mean? Is she going to...die? Where even is she to begin with?* Cisila hadn't seen Lyla all week.
 
 Worry sudden overtook her. She put her phone down, and got up from her chair. Lyla hadn't shown up in a week, and that enough had made her worry a little. But now it was bad. Lyla had basically said she could die. This wasn't a normal trip. This wasn't for Lyla's job. It wasn't even for family, or vacation...it was something else altogether. And it was like Lyla was telling her to find someone else so she wouldn't wait for a dead Lyla to return. Why? *Why* was this happening? What had Lyla been up to? She knew that only two years ago, she had been working under threat of blackmail for Cisila's ex-boyfriend, Mikhail. It was Lyla who had given her the scars on her cheek. Lyla had been through so much, and for her to up and disappear was strange. She wouldn't do that...not voluntarily.
+
+# 3
+# I'm Sorry
+### CHICAGO, ILLINOIS, U.S.A
+### 12:12AM, CST
+### NOVEMBER 2ND, 2035
+#### STEPHANIE LAYTON, 23
