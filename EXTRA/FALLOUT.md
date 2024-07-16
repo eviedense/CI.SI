@@ -1,3 +1,4 @@
+##### Thanks to neuronecrosis for letting me use Mason and the crocodile/alligator mounts!
 # 1 
 # MINDING MY BUSINESS
 ### EDGE OF NCR TERRITORY, WASTES
