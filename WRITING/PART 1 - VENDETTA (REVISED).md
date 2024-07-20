@@ -551,7 +551,7 @@ It was like a tsunami was heading straight towards the four. A tsunami of riot s
 
 *Mikhail has taken Lyla, and tortured her. When Cisila arrives, Lyla is on the brink of death.*
 
-*The third fight against Mikhail Reznov, alone in a cellar. Cisila, for once, is the one to begin the fight. Losing her cool, she shows strength that she's been holding back.*
+*The third fight against Mikhail Reznov, alone in a cellar. Cisila, for once, is the one to begin the fight. Losing her cool, she shows strength that she's been holding back. CUE PLEDGE OF DEMON.*
 
 
 # 21
