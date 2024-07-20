@@ -587,3 +587,10 @@ It was like a tsunami was heading straight towards the four. A tsunami of riot s
 *Mikhail pushes the gun against the mayor's head harder, silently watching. There's a short conversation, where Mikhail becomes enraged. The fact that they were able to break through the police and Emil was enough, but the fact that they'd stopped the Dragons from coming after him was even worse. He needed that provocation. His employer called for it, to break the city down further. He throws the gun down and instead pulls out his knife, stabbing it through the mayor in anger. He dies right then and there.*
 
 *He steps forward and refuses to go down without a fight. The group take him on, but not before Cisila destroy the livestream setup, forcefully putting it offline. The group take their masks off. CUE DESTINATION for a 4v1 fight, and the final one before the story ends. A fast-paced fight where the four, Cisila, Kasey, Lyla, and Dani, combine their tactics to bring down Mikhail, but even their combined strength, somehow, isn't enough. One by one, the group falls to the ground, out cold. It's only Cisila and Mikhail left. Switch to FOR WHOSE SAKE (Yakuza Kiwami) for the second and final phase of the fight, where the two slowly wear each other down, and Cisila begins to gain the upper hand. Mikhail has been weakened, and she uses her chance to immobilize him. she shoots him in the legs with her revolvers, and knocks him to the ground. She puts the revolver to his head, and nearly pulls the trigger, but using some self control, she stops herself. Standing up, she pulls out her phone and calls the police. They have no choice but to apprehend Mikhail now, as the murder was pretty much shown live.*
+
+# 24
+# Aftermath
+### CHICAGO, ILLINOIS, U.S.A
+### 1:01PM, CST
+### JANUARY 2ND, 2034
+#### CISILA J. SIVETA, 24
