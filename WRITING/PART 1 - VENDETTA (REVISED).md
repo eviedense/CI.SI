@@ -507,14 +507,14 @@ It was like a tsunami was heading straight towards the four. A tsunami of riot s
 ### NOVEMBER 20TH, 2033
 #### CISILA J. SIVETA, 24
 
-*A worldbuilding chapter focused on Cisila taking a walk back home. We see the city in November, where it has begun to snow. Christmas decorations are beginning to be put up. It's cold. After 17 chapters, we see that Cisila has finally changed her outfit: Instead of her purple T-shirt, she wears a purple turtleneck and black cargo pants, aswell as nice gloves and a pair of hiking boots. She's still got her satchel.* \
-*This chapter will be focused on the route between the PC Parts Shop and Cisila's apartment, showing the environment she lives in. It's pleasant, but later at night, it feels a bit empty. Cisila's life is looking up at this point, despite the pressure of the inevitable Mikhail fight looming ahead of her. She can see the Pierce Building in the skyline, and when she looks at it, she feels dread.*
+*A worldbuilding chapter focused on Cisila taking a walk back home. We see the city in November, where it has begun to snow. Christmas decorations are beginning to be put up. It's cold. She can taste the coldness in the air, and her breath is visible. A calm winter night, with the moon peeking through the clouds as snow falls. After 17 chapters, we see that Cisila has finally changed her outfit for a longer duration: Instead of her purple T-shirt, she wears a purple turtleneck and black cargo pants, aswell as nice gloves and a pair of hiking boots. She's still got her satchel.* \
+*This chapter will be focused on the route between the PC Parts Shop and Cisila's apartment, showing the environment she lives in. It's pleasant, but later at night, it feels a bit empty. Cisila's life is looking up at this point, despite the pressure of the inevitable Mikhail fight looming ahead of her. She can see the Pierce Building in the skyline, and when she looks at it, she feels dread, despite life going slow. Her relationships have been building up, and remembering this, she checks her watch. It's time for her to go see Lyla.*
 
 # 18
 # Lyla
 ### CHICAGO, ILLINOIS, U.S.A
-### 5:34AM, CST
-### DECEMBER 5TH, 2033
+### 11:34PM, CST
+### NOVEMBER 20TH, 2033
 #### CISILA J. SIVETA, 24
 
 # 19
