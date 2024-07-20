@@ -27,7 +27,7 @@ The last thing she heard was the lock clicking.
 
 And then she was dormant. In an empty room, soaked in her own blood, in a mascot suit that a man had used to kill children. The same man who had just mocked her. \
 She wouldn't let him get away with it. \
-The only thing keeping her conscious was raw anger. 
+The only thing keeping her conscious was raw anger. Anger that she'd been left like this. Anger that she couldn't solve what really happened to her sister. Anger that she couldn't save the kids trapped in the animatronics.
 
 But how long would it last her?
 
