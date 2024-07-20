@@ -529,11 +529,14 @@ It was like a tsunami was heading straight towards the four. A tsunami of riot s
 
 
 # 19
-# A New Outlook
+# Getting Close
 ### CHICAGO, ILLINOIS, U.S.A
 ### 12:45PM, CST
 ### DECEMBER 12TH, 2033
 #### CISILA J. SIVETA, 24
+
+*A chapter focused on the PC store, and Cisila's new friends there. In addition to that, we see Cisila's apartment again once the day ends. Similarly to 17, this is more worldbuilding.*
+
 
 # 20
 # Demon
@@ -542,12 +545,24 @@ It was like a tsunami was heading straight towards the four. A tsunami of riot s
 ### DECEMBER 15TH, 2033
 #### CISILA J. SIVETA, 24
 
+*Lyla goes missing.*
+
+*But Cisila finds her easily.*
+
+*Mikhail has taken Lyla, and tortured her. When Cisila arrives, Lyla is on the brink of death.*
+
+*The third fight against Mikhail Reznov, alone in a cellar. Cisila, for once, is the one to begin the fight. Losing her cool, she shows strength that she's been holding back.*
+
+
 # 21
 # Ticking Bomb
 ### CHICAGO, ILLINOIS, U.S.A
 ### 9:00PM, CST
-### DECEMBER 31ST, 2033
+### DECEMBER 30TH, 2033
 #### CISILA J. SIVETA, 24
+
+*The day before New Years' Eve, five days after Christmas Day. The main group gets back together and makes sure everything is ready for the following day. They plot out their route, and talk about how they're going to confront Mikhail. Cisila is unsure of what to do with him...he had escaped during the last fight, a couple weeks ago, and she hasn't seen him since. She's not sure she can stop herself from killing him after what he nearly did.*
+
 
 # 22
 # Countdown
@@ -556,9 +571,19 @@ It was like a tsunami was heading straight towards the four. A tsunami of riot s
 ### DECEMBER 31ST, 2033
 #### CISILA J. SIVETA, 24
 
+*FINALE* \
+*The group approaches the Pierce Building and force their way inside, only to be met with the police force. Cisila tries to convince them that they're stopping them from protecting the mayor, and for a brief moment, it seems to work on the lieutenant that confronts them. But he gets a call on his walkie-talkie, and when he looks back up at the group, he seems conflicted. But whatever the call was, it seems to have forced the police into a corner. They won't let Cisila and the group near Mikhail or the mayor. CUE GIKYOU NO HANA, as the fight against the police begins. The group works their way up the tower, and discover that about halfway up, the Dragons have broken into the building aswell, intending to kill Mikhail. The group fights through them aswell. The clock ticks closer to New Years' the longer they take, and they have to get up to the highest floor where the mayor is, before Mikhail can do anything. This is the ultimate long battle sequence.* \
+*The further up they get, the more desperate the police and Dragons get. The more vicious they become. They're unsure of themselves, and some even back down upon seeing Cisila and the group. The group learn that the police have been threatened by Mikhail with an exposé on the department's shenanigans. They have no choice, and the ones that need the protection are the ones that fight the hardest. The Dragons just want revenge, but when confronted, some back down. Others fight even harder, refusing to let Mikhail get caught, instead of being outright killed. The final fight before they reach Mikhail is a familiar face: the man in the blue suit, who is once again wielding a sledgehammer. Finally, he gets a name. Emil Forte, captain of the Dragons. He refuses to let them through to the elevator, and the group takes him on. Once he's down, the four look at each other. It's now, or never.*
+
+
 # 23
 # Tip of the Spear
 ### CHICAGO, ILLINOIS, U.S.A
 ### 11:45PM, CST
 ### DECEMBER 31ST, 2033
 #### CISILA J. SIVETA, 24
+
+*Cisila pulls her mask on, recognizing that she'll be seen on the city's livestream as Mikhail makes his attempt. Fifteen minutes until the ball drops. He could do it at any moment. The rest of the group hide their faces aswell, and as soon as the elevator opens, the group springs out of it and find Mikhail with a gun to the mayor's head, who is tied to a chair. Mikhail is distant, cold. His finger is on the trigger. The livestream is still on. Nobody can turn it off. The rest of the mayor's helpers are dead.* \
+*Mikhail pushes the gun against the mayor's head harder, silently watching. There's a short conversation, where Mikhail becomes enraged. The fact that they were able to break through the police and Emil was enough, but the fact that they'd stopped the Dragons from coming after him was even worse. He needed that provocation. His employer called for it, to break the city down further. He throws the gun down and instead pulls out his knife, stabbing it through the mayor in anger. He dies right then and there.*
+
+*He steps forward and refuses to go down without a fight. The group take him on, but not before Cisila destroy the livestream setup, forcefully putting it offline. The group take their masks off. CUE DESTINATION for a 4v1 fight, and the final one before the story ends. A fast-paced fight where the four, Cisila, Kasey, Lyla, and Dani, combine their tactics to bring down Mikhail, but even their combined strength, somehow, isn't enough. One by one, the group falls to the ground, out cold. It's only Cisila and Mikhail left. Switch to FOR WHOSE SAKE (Yakuza Kiwami) for the second and final phase of the fight, where the two slowly wear each other down, and Cisila begins to gain the upper hand. Mikhail has been weakened, and she uses her chance to immobilize him. she shoots him in the legs with her revolvers, and knocks him to the ground. She puts the revolver to his head, and nearly pulls the trigger, but using some self control, she stops herself. Standing up, she pulls out her phone and calls the police. They have no choice but to apprehend Mikhail now, as the murder was pretty much shown live.*
