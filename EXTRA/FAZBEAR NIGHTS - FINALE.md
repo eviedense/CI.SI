@@ -25,6 +25,12 @@ And then, she hit the floor. The suit slumped against the wall and she felt it b
 
 The last thing she heard was the lock clicking.
 
+And then she was dormant. In an empty room, soaked in her own blood, in a mascot suit that a man had used to kill children. The same man who had just mocked her. \
+She wouldn't let him get away with it. \
+The only thing keeping her conscious was raw anger. 
+
+But how long would it last her?
+
 -
 
 The Spring Bonnie suit was still slumped against the wall of the dilapidated safe room as two men finally broke the door open. "Jeez, man..." The first says, stepping inside. "Y'ever wonder what they, like, did with these places?" He looks around the dark room before pulling out his mobile phone and turning on its flashlight. "It was probably just storage." The second says, also turning on his own phone's flashlight. "See, look- old Atari cabinets are sitting back here." The second man aimed his flashlight over arcade cabinets. "They've got *Pong* here, too. That shows this is the original. Fuckin' ancient." He adds. "What the hell's even going to be back here, man, like-" The first one begins, stepping around the cabinets, only to see the bloodied and decaying Spring Bonnie suit slumped against the wall, in a pool of dried blood. "...Holy fuckin' *shit,* dude." He whispers. "Dude, dude- get over here." He ushers his partner over and points at the Spring Bonnie suit. "What the fuck?" The second one says, directing his phone flashlight over it. "There's no fucking way." He cackled. "Dude." The first one says, looking at the second.
