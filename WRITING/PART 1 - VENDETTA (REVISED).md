@@ -586,7 +586,7 @@ Cisila screamed at the top of her lungs.
 
 ### "MIKHAAAAIIIIL!"
 
-In a split second, she was barrelling towards Mikhail. "**DON'T YOU FUCKING TOUCH HER!**" She screamed, and without thinking, she flung a fist towards Mikhail's face. Caught off guard, Mikhail's eyes were wide. He hadn't expected such a visceral reaction, but it was clearly too late for him to react. Cisila's punch slammed into Mikhail's cheek and jaw, and caused his glasses to fly off of his face, awkwardly flung to the ground, clattering. The knife in his hand slammed into the floor as he let go and stumbled. Cisila caught herself and also stumbled, nearly hitting the floor. Bending over, Mikhail wiped his lip. "You little..." He hissed, heaving himself back up. Cisila regained her balance and shook her head, locking eyes with Mikhail.
+In a split second, she was barrelling towards Mikhail. "**DON'T YOU FUCKING TOUCH HER!**" She screamed, and without thinking, she flung a fist towards Mikhail's face. Caught off guard, Mikhail's eyes were wide. He hadn't expected such a visceral reaction, but it was clearly too late for him to react. Cisila's punch slammed into Mikhail's cheek and jaw, and caused his glasses to fly off of his face, awkwardly flung to the ground, clattering. The knife in his hand slammed into the floor as he let go and stumbled. Cisila caught herself and also stumbled, nearly hitting the floor. Bent over, Mikhail wiped his lip. "You little..." He hissed, heaving himself back up. Cisila regained her balance and shook her head, locking eyes with Mikhail.
 
 He was *not* going to touch Lyla. \
 Cisila would beat him to death if she had to.
@@ -595,6 +595,7 @@ Cisila would beat him to death if she had to.
 ### -[PATRIARCH OF THE DRAGONS]-
 #### Pledge of Demon - Yakuza 0 - SEGA SOUND TEAM
 #### https://open.spotify.com/track/131LgkYxiituZMmrAaSk9Y?si=afd3e8ffe44f45c5
+![ezgif-5-503022829e](https://github.com/user-attachments/assets/33bb5402-29d0-48e8-88c4-e8956310f0e1)
 
 
 
