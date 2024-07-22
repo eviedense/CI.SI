@@ -598,7 +598,11 @@ Cisila stared at him, her ears buzzing. Her vision had gone yellow. Once more, s
 
 Cisila suddenly felt sapped of her strength. Staring up at Mikhail, who seemed unfazed, had made her realize how hard Mikhail had been hitting her. Her brain felt disoriented. Her entire body was numb. As she blinked, realizing this, Mikhail pulled the knife out of her hands. He made a 'tsk' noise, before plunging the knife into Cisila's stomach. She froze up, coughing up more blood. 
 
-She wasn't able to stay conscious. But just before she slipped back into the nothingness she was so familiar with, she saw Mikhail turn around to look at a figure in the doorway. *"What the fuck...?!"* Mikhail's distinct voice echoed in her ears, reverbrating off of non-existent walls. She hit the floor and lost consciousness once more.
+She wasn't able to stay conscious. But just before she slipped back into the nothingness she was so familiar with, she saw Mikhail turn around to look at a figure in the doorway. *"What the fuck...?!"* Mikhail's distinct voice echoed in her ears, reverbrating off of non-existent walls. 
+
+It was Dani. Cisila felt relieved. She was safe...
+
+Letting go of herself, she hit the floor and lost consciousness.
 
 -
 
@@ -609,7 +613,13 @@ Taking the box, Cisila slowly slid it open. "Oh my God..." She whispered, starin
 "Fair enough." Cisila muttered, raising her left hand to look at the damage. It was a brutal scar. Unlike the identification scar on her right hand, she wasn't going to cover it up. She now had the scars from Lyla's steel claws, and from Mikhail's serrated knife. This entire ordeal had done a number on her. "God, that looks bad..." Lyla muttered, staring at the knife scar. "Did it go *through* your hand?" She asked. "Yeah." Cisila said, turning her hand over to look at her palm. "Woulda went straight into your head if I didn't stop it." She mumbled. Lyla raised an eyebrow at her, smiling. "Really?" She said. "You're working overtime to protect me." \
 "Yeah." Cisila sighed, "Guess I am." She looked around the room, eyeing her PC sitting underneath her desk. It was a cute little thing, with little feet propping it up. Its RGB lights were simple, seeing as it was an over ten year old computer. Cisila *really* wanted to get back on it and play something to ease her mind off of things, but right now, with Lyla in her room, she couldn't. Turning her attention back to Lyla, she lowered her hand. "Your apartment's probably pretty unsafe..." Cisila began, eyeing Lyla. "Yeah?" Lyla said, the corner of her mouth raised in confusion. "I was wondering..." Cisila mumbled, "If you *maybe* wanted to stay here for now." She sped through the last part of the sentence, and the ensuing silence made her nervous. Lyla's eyes flicked around the room, considering it. Her eyes slowly settled, looking into Cisila's own eyes. "Only if I get to sleep in your bed."
 
-Cisila rolled her eyes. "Yeah, yeah..." she muttered.
+Cisila rolled her eyes. "Yeah, yeah..." she muttered, turning away from Lyla. Something was eating away at her. Dani had saved her again, and instead of feeling grateful, she felt guilty. This was the *"nth"* time Dani had saved her, and Cisila was beginning to feel like it was too much. She'd been getting into too many bad situations, with no way to pull herself out. \
+When she'd first woken up after the fight against Mikhail, Dani told her the same thing. *"You need to stop relying on me so much."* They had said. *"There's going to be a time where I can't save you, y'know."*
+
+Sighing, Cisila shut her eyes. She'd have to work hard to make sure she didn't gravely injure herself again, and not just for her sake, but Dani's aswell. Worrying less about Cisila would free up Dani to work with the Brotherhood, instead of tending to Cisila.
+
+But to do that, she'd have to get past the upcoming scuffle against Mikhail. \
+And that was soon. Fifteen days.
 
 # 21
 # Ticking Bomb
