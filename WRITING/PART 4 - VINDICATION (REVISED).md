@@ -89,7 +89,7 @@ As quickly as her mother could muster, she walked around Stephanie and slammed t
 
 She sat on a bench in the middle of an empty park, scrolling on her phone. It was raining softly, and Stephanie kept having to wipe her screen off. Eventually, she turned her phone off and put it away. She pulled her glasses off and buried her face in her hands. *Fuck.* She thought.
 
-# 3
+# 4
 # Investigation Begins
 ### CHICAGO, ILLINOIS, U.S.A
 ### 5:20PM, CST
@@ -104,7 +104,7 @@ She sat on a bench in the middle of an empty park, scrolling on her phone. It wa
 
 *Swapping back to Stephanie, she walks into her friend's house, Talin's, where she is currently staying. Only to find Talin holding a note and looking worried, and as she notices Stephanie, Talin quickly perks up and rushes over to her. She explains that she found this note taped to the front door after Stephanie left, and was wondering if she left it. Looking at the note, Stephanie denies this. She looks up at Talin, and says, after carefully reading it, that it was for Stephanie herself. Heading into her temporary room, she sits down and stares at the note. "The thing you Seek is in the fighting ring. Defeat the Man, and you will defeat the police's desperate attempts at a cover-up." Staring at the oddly written note, she wonders who would still write like this- in cursive. Putting it into her bag for later, Stephanie lies down on the mattress in her room: there is no frame for it. She sighs.* 
 
-# 3
+# 5
 # The Man From Korea
 ### CHICAGO, ILLINOIS, U.S.A
 ### 11:45PM, CST
@@ -120,7 +120,7 @@ She sat on a bench in the middle of an empty park, scrolling on her phone. It wa
 *Meanwhile, Stephanie and Han Daehyun are sitting, back in their normal outfits, where Han congratulates her, and tells her that once they get back to Cisila, he will give them everything he knows. But just as they get up, a deafening scream echoes from the dance floor. They rush to the dance floor...and Stephanie nearly has a heart attack. A cloaked figure is backing away from the dance floor as Cisila slices her way through the innocent people at the club, who are desperately trying to stop her. But her eyes...they seem to be glazed over. Han looks shocked, and quickly looked around. Stephanie rushes forward and tries to stop Cisila, only to get pulled away by Han. "She's not in her own mind." Han hisses, hiding behind the bar counter with her. "I knew it when she first stepped in here. She is using something..." The guards of La Lune Brillante eventually join the fray, but even they can't stop her. The entire dance floor is covered in blood, and by the time Cisila is done, there are bodies strewn around her. And the cloaked figure is gone. Stephanie, against Han's insistence, gets out of the hiding spot and confronts Cisila. Though she doesn't know it, the Haze is fading away from Cisila. She's regained some control...but not enough to stop her from attacking Stephanie. "They killed her." Cisila hisses. "You don't understand- and if you don't understand-" She twirls her blade around, aiming it at Stephanie. "Then you and I are done."* \
 *Cue THROUGH for the fight against Cisila, from Stephanie's perspective. This is a normal fight, but pitting the main characters against each other isn't common to see in my writing. As the fight goes on, Stephanie's punches further decrease the Haze in Cisila's systems, and as the fight progresses through the club, they eventually find themselves outside, in the street, drenched by the rain outside. Lit by the pinkish-purple bulbs on the empty street lights, the fight eventually ends, and Cisila collapses. As does Stephanie. As Cisila regains controls of herself, she begins to hyper ventilate. Her vision returns to normal, as she realizes what she actually did. Han rushes outside and yells at the two that they need to leave. Rushing them away, Han takes them to a safehouse that he uses. Neither Han nor Stephanie saw Cisila use Haze, and are unaware of what caused her to go haywire.*
 
-# 4
+# 6
 # Wind Down
 ### CHICAGO, ILLINOIS, U.S.A
 ### 2:02AM, PST
@@ -133,7 +133,7 @@ She sat on a bench in the middle of an empty park, scrolling on her phone. It wa
 *Cisila has fallen back into bitterness, but doesn't back down from the investigation. Fueled by the vague idea that the figure might be connected, Cisila works feverishly to tie everything together, and to figure out her next step. Her best bet is to try and sneak into the Equinox Medical building in Chicago, and see if they're holding anything related to LHD-0404. Heading out, she ignores a message from Stephanie, explaining ideas she had.* \
 *A couple hours later, Stephanie's out in the town when she gets a message from Cisila. "Trapped inside Equinox Medical. Hiding. Need help." Stephanie panicks, and immediately calls Han. They quickly formulate a plan after Han criticizes Cisila for immediately going this far. Nonetheless, the two meet up and head for Equinox Medical. Roll back the clock...*
 
-# 5
+# 7
 # Syndicates Return
 ### CHICAGO, ILLINOIS, U.S.A
 ### 3:04PM, PST
