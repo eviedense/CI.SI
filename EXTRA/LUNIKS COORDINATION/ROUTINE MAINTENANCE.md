@@ -172,3 +172,44 @@ Steph leaned against the wall of the engine block, fidgeting with the piece of a
 Steph looked down at the metal floor, frowning. "Those worm things..." She mumbled. "I know." Lyla responded, beginning to fidget with her revolver once more. "We're only down here because Solen rushed us down. It was his primary goal to get the security team and the researchers down here- I'm not sure what his thought process was." She lowered her voice. "It feels like he forgot that our engineers were the most important part to keeping the ship alive." She muttered. Steph looked around the main hallway, and only then she realized that she had really only seen the security team, along with the researchers. "But the engineers still had a job to do, didn't they?" Steph asked. Lyla sighed, and nodded. "They did. I'm not sure how successful they were, but the only reason we're still living is because of them." She said. "They basically fought through that horde until they were torn apart." Steph frowned. *It's unfortunate that they all had to die like this.* Her mind echoed. "That horde..." Lyla muttered. "I swear there's more of them. The numbers are growing, despite the lack of corpses to use." She leaned forward and clicked open the cylinder, and freely spinned it. Lyla snapped it back into place and put it into her coat.
 
 "It's only been a couple of days." Lyla sighed, leaning her head against the wall. "But it feels like an eternity. I had to watch my friends die in front of me." Steph had seen the ship. She could only imagine the chaos that had unfolded as the worms first gained control. When the lights shut off...when the entire ship died, and began to drift. It must've been horrible, far worse than she could comprehend. Steph and the group had only boarded the *Pike* long after the initial burst of chaos, and saw the aftermath. It was bad. But whatever the crew had gone through must have been far, far worse. "I'm sorry." Steph said. "How did this...even happen?" She asked quietly. Lyla shook her head, "Exactly how it looks. Asteroid hit us, the ship jumped, and then those worms came from the asteroid. We think." She said. "Nobody's actually sure, it's just...it made sense." Lyla pulled her hat back on.
+
+# ---------[7]---------
+# ------[*Maniac*]------
+## -------[00:57, CDST]--------
+## ----[August 6th, 2096]----
+### -[The HHS, Deep Space]-
+### -[Cisila J. Siveta, 26]-
+
+-
+
+# ---------[8]---------
+# --[*Roulette To Death*]--
+## -------[01:23, CDST]--------
+## ----[August 6th, 2096]----
+### -[The HHS, Deep Space]-
+### -[Cisila J. Siveta, 26]-
+
+-
+
+# ---------[9]---------
+# ------[*Escape*]------
+## -------[01:50, CDST]--------
+## ----[August 6th, 2096]----
+### -[The HHS, Deep Space]-
+### -[Cisila J. Siveta, 26]-
+
+-
+
+# ---------[10]---------
+# --[*Control Returns*]--
+## -------[02:10, CDST]--------
+## ----[August 6th, 2096]----
+### -[The CSEP *Silver Pike*, Deep Space]-
+### -[Cisila J. Siveta, 26]-
+
+# ---------[11]---------
+# -----[*Aftermath*]-----
+## -------[10:20, CDST]--------
+## ----[August 6th, 2096]----
+### -[The CSEP *Golden Bow*, Deep Space]-
+### -[Cisila J. Siveta, 26]-
