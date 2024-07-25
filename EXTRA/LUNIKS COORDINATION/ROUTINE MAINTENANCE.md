@@ -177,7 +177,7 @@ Steph looked down at the metal floor, frowning. "Those worm things..." She mumbl
 # ------[*Maniac*]------
 ## -------[00:57, CDST]--------
 ## ----[August 6th, 2096]----
-### -[The HHS, Deep Space]-
+### -[The HSS, Deep Space]-
 ### -[Cisila J. Siveta, 26]-
 
 -
@@ -186,7 +186,7 @@ Steph looked down at the metal floor, frowning. "Those worm things..." She mumbl
 # --[*Roulette To Death*]--
 ## -------[01:23, CDST]--------
 ## ----[August 6th, 2096]----
-### -[The HHS, Deep Space]-
+### -[The HSS, Deep Space]-
 ### -[Cisila J. Siveta, 26]-
 
 -
@@ -195,7 +195,7 @@ Steph looked down at the metal floor, frowning. "Those worm things..." She mumbl
 # ------[*Escape*]------
 ## -------[01:50, CDST]--------
 ## ----[August 6th, 2096]----
-### -[The HHS, Deep Space]-
+### -[The HSS, Deep Space]-
 ### -[Cisila J. Siveta, 26]-
 
 -
