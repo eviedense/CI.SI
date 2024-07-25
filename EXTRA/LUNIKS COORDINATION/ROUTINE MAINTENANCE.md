@@ -1,5 +1,5 @@
 # ---------[1]---------
-# ----[*Power Up*]----
+# -[*Routine Maintenance*]-
 ## -------[22:31, CDST]--------
 ## ----[August 5th, 2096]----
 ### -[The CSEP *Platinum Halberd*, Space {Standard Route Between Dvóniks and Lóivonus}]-
