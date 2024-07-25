@@ -180,6 +180,7 @@ Steph looked down at the metal floor, frowning. "Those worm things..." She mumbl
 ### -[The HSS, Deep Space]-
 ### -[Cisila J. Siveta, 26]-
 
+
 -
 
 # ---------[8]---------
@@ -189,25 +190,41 @@ Steph looked down at the metal floor, frowning. "Those worm things..." She mumbl
 ### -[The HSS, Deep Space]-
 ### -[Cisila J. Siveta, 26]-
 
+
 -
 
+
 # ---------[9]---------
+# ------[*Power Up*]------
+## -------[01:37, CDST]--------
+## ----[August 6th, 2096]----
+### -[The CSEP *Silver Pike*, Deep Space]-
+### -[Stephanie Lània, 25]-
+
+
+-
+
+# ---------[10]---------
 # ------[*Escape*]------
 ## -------[01:50, CDST]--------
 ## ----[August 6th, 2096]----
 ### -[The HSS, Deep Space]-
 ### -[Cisila J. Siveta, 26]-
 
+
 -
 
-# ---------[10]---------
+# ---------[11]---------
 # --[*Control Returns*]--
 ## -------[02:10, CDST]--------
 ## ----[August 6th, 2096]----
 ### -[The CSEP *Silver Pike*, Deep Space]-
 ### -[Cisila J. Siveta, 26]-
 
-# ---------[11]---------
+
+-
+
+# ---------[12]---------
 # -----[*Aftermath*]-----
 ## -------[10:20, CDST]--------
 ## ----[August 6th, 2096]----
