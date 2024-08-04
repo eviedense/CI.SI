@@ -25,4 +25,14 @@ Pulling it shut, Gradient looked around. The train car was dim, and nobody was i
 *"There's no concrete evidence linking them to Palmer. I'm sorry, Gradient, but we would just get laughed out of the room if we tried to imply SOLARdawn was an ancient Earth company that completely shut off most of America to modern companies."* Kellien calmly explained. He seemed to be out of danger's way. *"Just lay it off for now-"* Kellien continued, *"We need to regroup. What's your Sector?"* Gradient quickly checked the watch on her left wrist. Its read-out displayed *SECTOR 3-B, METRO*. Relaying this to Kellien, he began to formulate a path to regroup at a safehouse. "You're going to have to get off at the next stop." He began, "The street should be empty, but...I don't know how long you can avoid SOLARSec." And nearly as soon as he explained that, a few of the screens in the train car flickered to life with a warning message. It seemed to have been broadcast citywide. "...Oh, for *fuck's* sake..." Gradient hissed, watching the screens. The warning message read: \
 *- WARNING - DANGEROUS HOSTILES - STAY INDOORS - IF SPOTTED, CONTACT SOLARSEC - AVOID AT ALL COSTS* \
 *KNOWN ASSAILANT DRESSED IN A RAINCLOAK, ALL BLACK, HINTS OF PURPLE. FACE OBSCURED. REPEAT, CONTACT SOLARSEC AND AVOID AT ALL COSTS.* \
-They weren't quite PALMER-EDEN, who had an iron grip on an entire country, but SOLARdawn managed to push city officials to label the incident an attack. An emergency. The metro slowly slid to a stop, the wheels screeching. The polite synthesized female voice of the metro calmly explained, *"Sector 3-B. Delcás Square. Thank you for using the Máneá M- Metro. Metro."* It glitched for a moment, repeating the word "metro". The doors slid open, and Gradient quickly got out of the car.
+They weren't quite PALMER-EDEN, who had an iron grip on an entire country, but SOLARdawn managed to push city officials to label the incident an attack. An emergency. The metro slowly slid to a stop, the wheels screeching. The polite synthesized female voice of the metro calmly explained, *"Sector 3-B. Delcás Square. Thank you for using the Máneá M- Metro. Metro."* It glitched for a moment, repeating the word "metro". The doors slid open, and Gradient quickly got out of the car. Out into Delcás Square, where SOLARSec was surely awaiting her.
+
+# 2
+# SOLARSec's Iron Grip
+## 21:50, MST, Máneá Standard Time
+### September 20th, 2076
+#### Amadnésam,'The Triangle', Máneá
+#### CODENAME: GRADIENT
+#### HEART Emergency Response Squad
+#### The Heist - P.T Adamczyk - CYBERPUNK 2077
+#### https://open.spotify.com/track/3aLlzgIl2B6j2CFII34tXL?si=5bd9bf4dc262438a
