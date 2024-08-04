@@ -2,7 +2,7 @@
 # Warning: Severe Rainfall
 ## 21:25, MST, Máneá Standard Time
 ### September 20th, 2076
-#### Amadnésam,'The Triangle', Máneá
+#### Amadnésam, 'The Triangle', Máneá
 #### CODENAME: GRADIENT
 #### HEART Emergency Response Squad
 
@@ -30,7 +30,7 @@ They weren't quite PALMER-EDEN, who had an iron grip on an entire country, but S
 # SOLARSec's Iron Grip
 ## 21:50, MST, Máneá Standard Time
 ### September 20th, 2076
-#### Amadnésam,'The Triangle', Máneá
+#### Amadnésam, 'The Triangle', Máneá
 #### CODENAME: GRADIENT
 #### HEART Emergency Response Squad
 #### The Heist - P.T Adamczyk - CYBERPUNK 2077
