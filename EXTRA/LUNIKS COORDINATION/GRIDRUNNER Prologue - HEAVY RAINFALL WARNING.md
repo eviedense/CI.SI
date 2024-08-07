@@ -60,3 +60,5 @@ Gradient nodded at Elias, who sighed. "Yeah...ain't too far." He mumbled. "Let's
 #### Amadnésam, 'The Triangle', Máneá
 #### CODENAME: GRADIENT
 #### HEART Emergency Response Squad
+
+Heading down the steps, Gradient pulled her hood down. Water droplets ran down the raincloak and fell onto the stairs as she walked down. Dim blue and red lights lined the top of the staircase, leading down to the entrance of the only HEART safehouse in the Sector. 
