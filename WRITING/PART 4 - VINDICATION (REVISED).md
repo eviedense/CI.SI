@@ -187,7 +187,8 @@ She sat on a bench in the middle of an empty park, scrolling on her phone. It wa
 
 *The mysterious figure she's been trying to find desperately. And she already knows who it is. Lyla. Lyla reveals herself, and slowly holds up a gun towards Cisila. The Haze kicks in again, seeing the dread in Cisila's mind. Everything fades out as Cisila swiftly knocks the gun out of Lyla's hand and bashes her away. Lyla immediately engages Cisila in a fight, yelling at her. But Cisila can't hear her. Cisila can't see what Lyla really feels. Once more, she is blinded by the Haze. Cue A STRANGER I REMAIN for the second fight against Lyla in the entire storyline.* \
 *Cisila, despite trying to resist, kills Lyla. Chapter ends as the Haze fades away, and Cisila looks at the blood on her hands.* \
-*What did she just do?*
+*What did she just do?* \
+*But then suddenly, Lyla comes out of the remaining fog of the Haze, and Cisila's vision goes pitch black.*
 
 # 11
 # Back On The Road
@@ -212,12 +213,24 @@ She sat on a bench in the middle of an empty park, scrolling on her phone. It wa
 *But then, as her vision corrects itself, she spots Lyla also tied to a chair. She looks fine, uninjured- despite what just happened. The two stare at each other, confused. But one of the cloaked figures cuts the two free, and the circle of spectators draws back as they watch the two stand up. Looking around even more confused, Cisila runs up to Lyla. The two quickly see what happened. Cisila feels a deep pang of fear as she realized that the Haze lied to her again. It feels alive in her pocket...but she can't let it go. She can't let Lyla know, either. For the time being, all they can do is get out. Whatever the group was trying to do, it clearly doesn't work as Cisila and Lyla go back-to-back, raising their fists. Were they expecting them to fight? Who knows. But their connection is too deep. The Cloaked Cult pull out their weapons, and engage the two. Cue PHYSICAL by Dua Lipa, the only goddamned pop song in the whole saga (For now. Wait until later.) as Lyla and Cisila fight back the figures and escape.*
 
 *Once out, Lyla confronts Cisila about Haze. She's well aware Cisila has it, and explains where it comes from. Given what we learn from Stephanie's perspective, a few details Lyla says are no surprise. The Dragons pedal Haze, and use merchants to sell it (like Talin). And just like Stephanie learned in the previous chapter, Cisila learns from Lyla that Haze is the name of a weapons system Carbine is designing, with bioweapon help from Equinox Medical. She looks down at the Haze inhaler, and puts two and two together. LHD-0404 is Haze.* \ 
-*She stares into the Haze logo hastily scribbled on the inhaler, and feels terrified.*
+*She stares into the Haze logo hastily scribbled on the inhaler, and feels terrified. She needs to warn Stephanie that, somehow, she is a part of the problem. Trying to contact Stephanie, she finds nothing. No response. But Talin knows when Cisila calls her, and says that she is already taking care of it. Cisila can't help but rush afterwards anyways.*
 
 
 # 13
 # Target On Your Back
 ### CHICAGO, ILLINOIS, U.S.A
-### 2:35PM, CST
+### 2:35AM, CST
 ### NOVEMBER 8TH, 2035
 #### STEPHANIE LAYTON, 23
+
+*In an identical situation to what just happened to Cisila (perhaps on purpose?) Stephanie is captured by the murderer, and brought to Equinox Medical. There, she learns something she didn't know previously. Maria was working on LHD-0404, and they meet face-to-face in Equinox Medical, as Stephanie is tied to a chair by the murderer, whose identity is 'revealed'. An androgynous person who is only known as the Crow, after their mask- a plague doctor's mask. Maria calmly explains what's going to happen to Stephanie. She is going to be killed, and so is Cisila. They cannot escape their fate, and even if Stephanie gets out of this, she will be found by the Crow and killed just like the rest of the LHD-0404 project team who disobeyed Maria. Maria seems cold and emotionless.* \
+*Unluckily for Maria and the Crow, Talin finds Stephanie. The two break out, backed Chinatown by Bill Kiley from Katana ZERO.*
+
+# 14 
+# Retrieval
+### CHICAGO, ILLINOIS, U.S.A
+### 2:50AM
+### NOVEMBER 8TH, 2035
+#### STEPHANIE LAYTON, 23
+
+*Talin and Stephanie make it out of the Equinox Medical building, only to discover that it was a bunker. Rushing back up onto the street through a manhole, Stephanie and Talin climb into the Nissan R32, and make an escape. On the way out, Cisila calls them, and tells them to go to a Lighthouse just outside the city, and gives directions. Almost as soon as they leave, they see that they're tailed. Two sleek, modern sports cars from the Syndicate. Two things have to happen in order for them to be able to get to the lighthouse: they need the route. And they need to lose the cars. And to do that, Stephanie makes a turn towards the area outside of the city, a road she knows that is extremely winding. The sports cars easily catch up to the R32, but once they reach the top of the mountain - a place exclusive to this universe - and the downhill drive begins, Stephanie overtakes them. Cue BACK ON THE ROCKS by MEGA NRG MAN for a battle for street superiority. Inspired directly by Initial D First Stage's TAKESHI NAKAZATO v. TAKUMI FUJIWARA fight, this exemplifies the control and power Stephanie has over the R32. "The R badge on the back...can you get close enough to see it?!". Despite the superior hardware of the Syndicate cars and cons of the R32, Stephanie begins to lose them as the drivers lose control of their cars, smashing into the road barriers or crashing straight through them. "Back on the rocks, back on the rocks, baby - you gotta keep your mind together!"*
