@@ -227,7 +227,7 @@ She sat on a bench in the middle of an empty park, scrolling on her phone. It wa
 *Unluckily for Maria and the Crow, Talin finds Stephanie. The two break out, backed Chinatown by Bill Kiley from Katana ZERO.*
 
 # 14 
-# Retrieval
+# You Gotta Keep Your Mind Together
 ### CHICAGO, ILLINOIS, U.S.A
 ### 2:50AM
 ### NOVEMBER 8TH, 2035
