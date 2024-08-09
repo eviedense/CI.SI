@@ -224,7 +224,7 @@ She sat on a bench in the middle of an empty park, scrolling on her phone. It wa
 #### STEPHANIE LAYTON, 23
 
 *In an identical situation to what just happened to Cisila (perhaps on purpose?) Stephanie is captured by the murderer, and brought to Equinox Medical. There, she learns something she didn't know previously. Maria was working on LHD-0404, and they meet face-to-face in Equinox Medical, as Stephanie is tied to a chair by the murderer, whose identity is 'revealed'. An androgynous person who is only known as the Crow, after their mask- a plague doctor's mask. Maria calmly explains what's going to happen to Stephanie. She is going to be killed, and so is Cisila. They cannot escape their fate, and even if Stephanie gets out of this, she will be found by the Crow and killed just like the rest of the LHD-0404 project team who disobeyed Maria. Maria seems cold and emotionless.* \
-*Unluckily for Maria and the Crow, Talin finds Stephanie. The two break out, backed Chinatown by Bill Kiley from Katana ZERO.*
+*Unluckily for Maria and the Crow, Talin finds Stephanie. The two break out, backed by CHINATOWN by BILL KILEY from Katana ZERO.*
 
 # 14 
 # Blazing Trail
