@@ -296,7 +296,7 @@ She sat on a bench in the middle of an empty park, scrolling on her phone. It wa
 
 *But back on the road, and now going properly downhill, she's able to regain control of herself. Letting the Nissan Skyline GT-R R32 'Godzilla' roar, Stephanie lets herself focus, as Cisila watches nervously. This entire chase is going to be incredibly long (probably most of the chapter!), and only 'ends' once the R32 exits Skeller Pass and gets back onto the Chicago highway. We shift to Cisila's perspective as they draw closer to the Crow's (well, Lyla's...but still) car, and she hangs out the passenger window, pulling out her revolvers. Her goal: stop the car on the highway. By force. Cue BATTLE OF PRIDE from YAKUZA 5 for a Yakuza-like car section.*
 
-*Chapter ends as the cars get off the highway and onto a main Chicago street, where the Crow's car crashes, going into an off-kilter drift before flipping onto its side.*
+*Chapter ends as the cars get off the highway and onto a main Chicago street, where the Crow's car crashes from Cisila's relentless gunfire, going into an off-kilter drift before flipping onto its side.*
 
 # 20
 # Stop Them
