@@ -305,4 +305,4 @@ She sat on a bench in the middle of an empty park, scrolling on her phone. It wa
 ### CHICAGO, ILLINOIS, U.S.A
 ### 10:38PM
 ### NOVEMBER 9TH, 2035
-#### STEPHANIE LAYTON, 23 & CISILA J. SIVETA, 26
+#### CISILA J. SIVETA, 26
