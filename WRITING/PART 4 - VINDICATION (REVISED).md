@@ -44,13 +44,6 @@ Cisila stared at her with confusion etched into her face. Her mouth was open a l
 
 -
 
-# 2
-# Problem Unsolved
-### CHICAGO, ILLINOIS, U.S.A
-### 11:10PM, CST
-### NOVEMBER 1ST, 2035
-#### CISILA J. SIVETA, 26
-
 Cisila pulled her face out of her hands again and picked up her phone. She opened the contacts and quickly found Lyla's number. While she was trying to get everything she could out of that Stephanie girl, Lyla had sent a message: *Sorry to be abrupt, but it looks like I need to leave for a little while. A month, at least. I know I don't like it, but for now, our relationship is on hold.* She had written. Calling Lyla, she held the phone up to the side of her head. "Lyla..." Cisila said, spinning around in her chair to face the shelves behind her. "Yeah- yeah, I'm sorry." Lyla said. "It's really important. I'm really sorry." She sighed, "I haven't been able to do much recently, and it's...well, it's part of why I'm going. I didn't want to keep dragging you on and on, so..." She paused. "Yeah- I...I think we've just gotta...stop. For now." Cisila leaned back in her chair and sighed deeply, fidgeting with a large coin she'd found. "It's- it's fine." Cisila said. "I get it." She didn't really get it. Lyla, for whatever reason, suddenly had so many trips to random places. And this was probably the worst of them. A month of not having Lyla was like a month where Cisila didn't have a purpose in life. "I'm...really going to be alone, though." She admitted. "You'll be alright..." Lyla said. "There's...there's a lot of people to talk to." Lyla sounded extremely tired, barely able to string words together. Cisila didn't want to make her more tired, so she decided to try and end the conversation as soon as she could. "Well, I...I won't *die* without you." Cisila said, "But...I also...I really can't guarantee that I won't..." she sighed. "I think I know what you mean." Lyla said. "Look- if...if you need someone...if you decide you like someone else..." She paused. Cisila fidgeted with the coin more, her fingers tensing up. Her fingers rubbed against the warm metal of the coin. "Lyla..." Cisila mumbled. "What's wrong?" \
 Lyla breathed in deeply. "It's- it's nothing. I'm just...it might not take just a month. I could be gone for a lot longer, and I..." she paused again. "I just want you to be happy, so if there's...someone else you're happy with, that's- that's cool." She muttered. "Right..." Cisila said, feeling down. "Thank you." Lyla sighed, and finally finished the conversation. "Look- I love you. But I'm going to be gone for so long, and I..." Cisila raised an eyebrow in confusion, before Lyla suddenly dropped a bomb. "I might not come back." Lyla said. "What?" Cisila said, her expression going from the numb sadness she was feeling to worry. Confusion. "Lyla- what?" She repeated. "Lyla, what the fuck do you mean?! You-" But she was met with the beep of a hang up. She was left sitting in her chair with the phone up to her ear, frozen. *What does she mean?* Her mind echoed. *What could that possibly mean? Is she going to...die? Where even is she to begin with?* Cisila hadn't seen Lyla all week.
 
@@ -70,7 +63,7 @@ Cisila didn't do that, right? Not to anyone who didn't deserve it. And nobody di
 
 -
 
-# 3
+# 2
 # I'm Not Sorry
 ### CHICAGO, ILLINOIS, U.S.A
 ### 12:12AM, CST
@@ -89,7 +82,7 @@ As quickly as her mother could muster, she walked around Stephanie and slammed t
 
 She sat on a bench in the middle of an empty park, scrolling on her phone. It was raining softly, and Stephanie kept having to wipe her screen off. Eventually, she turned her phone off and put it away. She pulled her glasses off and buried her face in her hands. *Fuck.* She thought.
 
-# 4
+# 3
 # Investigation Begins
 ### CHICAGO, ILLINOIS, U.S.A
 ### 5:20PM, CST
@@ -104,7 +97,7 @@ She sat on a bench in the middle of an empty park, scrolling on her phone. It wa
 
 *Swapping back to Stephanie, she walks into her friend's house, Talin's, where she is currently staying. Only to find Talin holding a note and looking worried, and as she notices Stephanie, Talin quickly perks up and rushes over to her. She explains that she found this note taped to the front door after Stephanie left, and was wondering if she left it. Looking at the note, Stephanie denies this. She looks up at Talin, and says, after carefully reading it, that it was for Stephanie herself. Heading into her temporary room, she sits down and stares at the note. "The thing you Seek is in the fighting ring. Defeat the Man, and you will defeat the police's desperate attempts at a cover-up." Staring at the oddly written note, she wonders who would still write like this- in cursive. Putting it into her bag for later, Stephanie lies down on the mattress in her room: there is no frame for it. She sighs.* 
 
-# 5
+# 4
 # The Man From Korea
 ### CHICAGO, ILLINOIS, U.S.A
 ### 11:45PM, CST
@@ -120,7 +113,7 @@ She sat on a bench in the middle of an empty park, scrolling on her phone. It wa
 *Meanwhile, Stephanie and Han Daehyun are sitting, back in their normal outfits, where Han congratulates her, and tells her that once they get back to Cisila, he will give them everything he knows- and explains that he too is rather interested in the case, and suggests that he be able to tag along. Stephanie agrees. But just as they get up to head back to Cisila, a deafening scream echoes from the dance floor. They rush to the dance floor...and Stephanie nearly has a heart attack. A cloaked figure is backing away from the dance floor as Cisila slices her way through the innocent people at the club, who are desperately trying to stop her. But her eyes...they seem to be glazed over. Han looks shocked, and quickly looked around. Stephanie rushes forward and tries to stop Cisila, only to get pulled away by Han. "She's not in her own mind." Han hisses, hiding behind the bar counter with her. "I knew it when she first stepped in here. She is using something..." The guards of La Lune Brillante eventually join the fray, but even they can't stop her. The entire dance floor is covered in blood, and by the time Cisila is done, there are bodies strewn around her. And the cloaked figure is gone. Stephanie, against Han's insistence, gets out of the hiding spot and confronts Cisila. Though she doesn't know it, the Haze is fading away from Cisila. She's regained some control...but not enough to stop her from attacking Stephanie. "They killed her." Cisila hisses. "You don't understand- and if you don't understand-" She twirls her blade around, aiming it at Stephanie. "Then you and I are done."* \
 *Cue THROUGH for the fight against Cisila, from Stephanie's perspective. This is a normal fight, but pitting the main characters against each other isn't common to see in my writing. As the fight goes on, Stephanie's punches further decrease the Haze in Cisila's systems, and as the fight progresses through the club, they eventually find themselves outside, in the street, drenched by the rain outside. Lit by the pinkish-purple bulbs on the empty street lights, the fight eventually ends, and Cisila collapses. As does Stephanie. As Cisila regains controls of herself, she begins to hyper ventilate. Her vision returns to normal, as she realizes what she actually did. Han rushes outside and yells at the two that they need to leave. Rushing them away, Han takes them to a safehouse that he uses. Neither Han nor Stephanie saw Cisila use Haze, and are unaware of what caused her to go haywire.*
 
-# 6
+# 5
 # Wind Down
 ### CHICAGO, ILLINOIS, U.S.A
 ### 2:02AM, CST
@@ -133,7 +126,7 @@ She sat on a bench in the middle of an empty park, scrolling on her phone. It wa
 *Cisila has fallen back into bitterness, but doesn't back down from the investigation. Fueled by the vague idea that the figure might be connected, Cisila works feverishly to tie everything together, and to figure out her next step. Her best bet is to try and sneak into the Equinox Medical building in Chicago, and see if they're holding anything related to LHD-0404. Heading out, she ignores a message from Stephanie, explaining ideas she had.* \
 *A few hours later, Stephanie's out in the town when she gets a message from Cisila. "Trapped inside Equinox Medical. Hiding. Need help." Stephanie panicks, and immediately calls Han. They quickly formulate a plan after Han criticizes Cisila for immediately going this far. Nonetheless, the two meet up and head for Equinox Medical. Roll back the clock...*
 
-# 7
+# 6
 # Syndicates Return
 ### CHICAGO, ILLINOIS, U.S.A
 ### 7:04PM, CST
@@ -146,7 +139,7 @@ She sat on a bench in the middle of an empty park, scrolling on her phone. It wa
 
 *Finding Cisila, the three reconvene. Cisila quickly gives Stephanie the information that she seems to have found just after we swapped perspectives, and tells Stephanie to run for it with Han. Cisila herself needs a way out, and can't be seen with the evidence. Unable to ask why, Stephanie simply accepts, and leaves with Han, attempting to find a quieter way out than in via another door in the room Cisila was trapped in. Swapping to Cisila's perspective, cue T U S K as she confronts the group of Syndicate members waiting outside the main door. Instead of trying to escape, Cisila beats down the group and demands to see their leader. Taking a hit of Haze, the whole scenario becomes a blur. She knows where to go after being told by one of the members, and eventually finds what she's looking for as the Haze completely takes over. Dan. The Syndicate in question was the Cobras. Unable to think clearly, she latches onto Dan and demands to know what's happening. Her vision turns from warped purple to a burning red, as it intensifies. Her hand twitches. Dan's words fall on deaf ears, but before Cisila can take him out, she's shot in the shoulder. Looking back, she sees the cloaked figure. Her instincts shift to chase after the figure. The red gets even worse. The buzzing in her ears drones on as she chases after the cloaked figure, the same one that took Lyla. The same one that probably killed her. As she sprints through the hallways, she sees that the cloaked figure is about to jump through the window. Her mind dead set on following them, Cisila barely registers that the figure slides to a stop. Cisila flies past them, and as she cranes her head towards them, she sees something that nearly snaps her mind in two. The figure has pulled off their mask. It's Lyla looking at her in complete and total contempt. Cisila crashes straight through the large window, and plummets to the ground, barely saving herself with her EXO's grapple.*
 
-# 8
+# 7
 # Piecing Together
 ### CHICAGO, ILLINOIS, U.S.A
 ### 9:12PM, CST
@@ -160,7 +153,7 @@ She sat on a bench in the middle of an empty park, scrolling on her phone. It wa
 
 *Talin, reminded of how she is on the brink of death if she doesn't sell enough of the Haze, slowly breaks down. Stephanie comforts her, unable to see anything wrong with what Talin is doing. She knows Talin is doing what she has to.*
 
-# 9
+# 8
 # Hands On The Wheel
 ### CHICAGO, ILLINOIS, U.S.A
 ### 8:30PM, CST
@@ -177,7 +170,7 @@ She sat on a bench in the middle of an empty park, scrolling on her phone. It wa
 *The R32 rolls to a stop at the finish line, just past the parking lot. The Stinger follows behind, slowly coming to a stop aswell. Getting out of the R32, Stephanie is congratulated by Vance and Talin (especially Talin), and Vance makes another comment. "Didn't think you'd actually do it..." He mutters, crinkling his nose. "Blimey, though, guess it's the driver after all, eh?"* \
 *They look over at the Stinger driver, who looks like a professional street racer. Their gender isn't very clear, but nonetheless, they congratulate Stephanie. But something abotu them feels off, and just before they turn away, they make direct eye contact with Stephanie. Their gaze pierces through Stephanie's eyes, and a brief moment turns into an eternity. Do they recognize her? But the thought is rather unceremoniously shoved out of her head as Talin, on impulse, kisses Stephanie. "Woah, okay," Vance sputters, "Do it somewhere else..." Stephanie is shocked, and pulls away, silent. She quickly makes her way back over to the R32, and starts it back up. Talin climbs into the passenger's seat, and the drive home is rather silent. Talin quietly apologizes, but Stephanie remains silent.*
 
-# 10
+# 9
 # Breathing Down My Neck
 ### CHICAGO, ILLINOIS, U.S.A
 ### 10:01PM, CST
@@ -191,7 +184,7 @@ She sat on a bench in the middle of an empty park, scrolling on her phone. It wa
 *What did she just do?* \
 *But then suddenly, Lyla comes out of the remaining fog of the Haze, and Cisila's vision goes pitch black.*
 
-# 11
+# 10
 # Back On The Road
 ### CHICAGO, ILLINOIS, U.S.A
 ### 12:01AM, CST
@@ -205,7 +198,7 @@ She sat on a bench in the middle of an empty park, scrolling on her phone. It wa
 
 *Getting back in the car, Stephanie drives Maria back to Equinox Medical after she thinks it's safe. Arriving there, for some reason...Stephanie fades out. She goes unconscious.*
 
-# 12
+# 11
 # Hallucination
 ### CHICAGO, ILLINOIS, U.S.A
 ### 1:01AM, CST
@@ -219,7 +212,7 @@ She sat on a bench in the middle of an empty park, scrolling on her phone. It wa
 
 *A serious withdrawal from Haze. It completely takes her out of the moment, and makes her yearn for the Haze again. But she can't. She forces herself to leave, but she's going to go somewhere else. The Lighthouse...*
 
-# 13
+# 12
 # Bunker
 ### CHICAGO, ILLINOIS, U.S.A
 ### 2:35AM, CST
@@ -229,7 +222,7 @@ She sat on a bench in the middle of an empty park, scrolling on her phone. It wa
 *In an identical situation to what just happened to Cisila (perhaps on purpose?) Stephanie is captured by the murderer, and brought to Equinox Medical. There, she learns something she didn't know previously. Stephanie has been tied to a chair by the murderer, whose identity is 'revealed'. An androgynous person who is only known as the Crow, after their mask- a plague doctor's mask. The murderer calmly explains what's going to happen to Stephanie. She is going to be killed, and so is Cisila. They cannot escape their fate, and even if Stephanie gets out of this, she will be found by the Crow and killed just like the rest of the LHD-0404 project team who went against it. The murderer seems cold and emotionless.* \
 *Unluckily for the Crow, Talin finds Stephanie. The two break out, backed by DELUSIVE BUNKER by LUDOWIC from Katana ZERO. On the way out, Stephanie acquires a police baton, and finds it fun to use. She keeps it and decides to see if she can figure out how to use it better.*
 
-# 14 
+# 13
 # Blazing Trail
 ### CHICAGO, ILLINOIS, U.S.A
 ### 2:50AM
@@ -238,7 +231,7 @@ She sat on a bench in the middle of an empty park, scrolling on her phone. It wa
 
 *Talin and Stephanie make it out of the Equinox Medical building, only to discover that it was a bunker. Rushing back up onto the street through a manhole, Stephanie and Talin climb into the Nissan R32, and make an escape. On the way out, Cisila calls them, and tells them to go to a Lighthouse just outside the city, and gives directions. Almost as soon as they leave, they see that they're tailed. Two sleek, modern sports cars from the Syndicate. Two things have to happen in order for them to be able to get to the lighthouse: they need the route. And they need to lose the cars. And to do that, Stephanie makes a turn towards the area outside of the city, a road she knows that is extremely winding. The sports cars easily catch up to the R32, but once they reach the top of the mountain - a place exclusive to this universe - and the downhill drive begins, Stephanie overtakes them. Cue THE TOP by KEN BLAST for a battle for street superiority. Inspired directly by Initial D First Stage's TAKESHI NAKAZATO v. TAKUMI FUJIWARA fight, this exemplifies the control and power Stephanie has over the R32. "The R badge on the back...can you even get close enough to see it?!". Despite the superior hardware of the Syndicate cars and cons of the R32, Stephanie begins to lose them as the drivers lose control of their cars, smashing into the road barriers or crashing straight through them. "Now they've fallen, I'm at the top! Are you ready now to die?"*
 
-# 15
+# 14
 # Let's Talk
 ### CHICAGO, ILLINOIS, U.S.A
 ### 3:10AM
@@ -251,7 +244,7 @@ She sat on a bench in the middle of an empty park, scrolling on her phone. It wa
 
 *Down below, Cisila tries to talk to Talin, but we see that she's rather closed off, as opposed to when she's with Stephanie. Cisila relents, gets up, and heads over to Kasey. The two chat about what Kasey was up to in Japan, and Kasey is apprehensive to explain. When she learns what happened in Chicago, she's disappointed in Cisila, but pushes forward nonetheless, knowing that despite Cisila's own apprehension, the case has progressed smoothly, with the help of Stephanie, Talin, and Han Daehyun, whom we haven't seen for a majority of the chapters. She's also glad to know that the Haze inhaler was destroyed during the encounter with the cult.*
 
-# 16
+# 15
 # Two Days To Relax, At Least For a Moment
 ### CHICAGO, ILLINOIS, U.S.A
 ### 1:45PM
@@ -261,7 +254,7 @@ She sat on a bench in the middle of an empty park, scrolling on her phone. It wa
 *A chapter focused on showing a brief break in the main story, where we see a vaguely normal set of days from Stephanie and Cisila's perspectives. Hopefully, this will be valuable worldbuilding to show how Chicago has changed since PALMER-EDEN's fall, because we've been too busy on the investigation to pay attention to the streets of Chicago.*
 
 
-# 17
+# 16
 # The Die Has Been Cast
 ### CHICAGO, ILLINOIS, U.S.A
 ### 9:31PM
@@ -270,7 +263,7 @@ She sat on a bench in the middle of an empty park, scrolling on her phone. It wa
 
 *The group get back together at the Lighthouse at an odd time, and discuss what they've found throughout their separate investigations. This is a chapter to lay out the foundation of the mystery of LHD-0404, putting it together clearly. The cult, who Lyla informs the group seems to be using Haze. Carbine, who is using Haze for its new bioweapon systems. And Equinox Medical, who made Haze, or LHD-0404. The murderer, or the Crow, who seems to have been hired by the project leader of LHD-0404 to kill any and all people against the project. Who or why this is happening remains unknown, and the group begin to brainstorm who the project leader is, but they get nowhere. Instead of trying to figure it out on their own, Stephanie calls Maria, but when she picks up, Stephanie is met by the Crow instead. They state that they have Maria. They then tell Stephanie to go outside...Talin is watching Stephanie, nervously.*
 
-# 18
+# 17
 # I Believe In You
 ### CHICAGO, ILLINOIS, U.S.A
 ### 10:02PM
@@ -284,7 +277,7 @@ She sat on a bench in the middle of an empty park, scrolling on her phone. It wa
 *And then, with that, Stephanie pulls out her phone only to see a news notification. "LHD-0404 'HAZE' PROJECT TO BE ANNOUNCED TODAY"* \
 *Stephanie looks to Cisila, who immediately says they need to find Maria. But Stephanie points out the car that the Crow stole...it was Lyla's. Turning to Lyla, they find out they can track the car. The best thing they can do is chase after them. Stop them before something else happens. And now is the only time.*
 
-# 19
+# 18
 # Chase Of Your Nightmares
 ### CHICAGO, ILLINOIS, U.S.A
 ### 10:17PM
@@ -299,7 +292,7 @@ She sat on a bench in the middle of an empty park, scrolling on her phone. It wa
 
 *Chapter ends as the cars get off the highway and onto a main Chicago street, where the Crow's car crashes from Cisila's relentless gunfire, going into an off-kilter drift before flipping onto its side.*
 
-# 20
+# 19
 # Stop Them
 ### CHICAGO, ILLINOIS, U.S.A
 ### 10:38PM
