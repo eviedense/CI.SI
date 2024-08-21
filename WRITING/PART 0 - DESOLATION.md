@@ -1,7 +1,7 @@
 # 1
 # Just Another Day in Montana
 ### WHITEFISH, MONTANA, U.S.A
-### 7:05PM, MST
+### 11:05AM, MST
 #### JUNE 15TH, 2027
 #### CISILA J. SIVETA, 18
 
