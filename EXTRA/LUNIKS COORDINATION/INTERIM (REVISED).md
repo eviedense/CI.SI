@@ -1,1 +1,7 @@
-
+# 1
+## CODE VIOLATION
+### 14:01, IST (Illinois Standard Time)
+### Country of Illinois, Capital City of Chicago
+### AUGUST 2ND, 2073
+#### CODENAME: GRADIENT, POSITION: SPECIAL OPERATIONS & COUNTERINTELLIGENCE AGENT
+#### J-LEVEL SECURITY CLEARANCE
