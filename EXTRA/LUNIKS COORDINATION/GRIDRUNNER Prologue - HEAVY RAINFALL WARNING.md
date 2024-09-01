@@ -121,7 +121,7 @@ Gradient lifted up the little Cisila and let the little girl rest on her lap, le
 Pulling back, she looked Cisila in the eyes again, and cupped a hand against her cheek again. Cisila raised her own hand and touched it, her fingers grasping the metal. If Gradient refused to be Cisila, then there was only one thing she could do for this new one. Make sure she had a good life. And that meant embracing that Gradient was the closest thing this girl had to a mother. "I want you to understand something, Cisila." Gradient said, sliding her thumb across Cisila's cheek. She looked nervous, her eyes glued to Gradient's. They each had the same colour for their eyes. SOLARdawn had really gone the extra mile.
 
 Gradient sighed again, and finally said something she'd thought she would never, ever say. \
-*"You're my little girl. And I will never, ever let them take you away again."*
+*"You're my little girl. And I will never, ever let them take you away again."* she whispered, sincerely.
 
 # 6
 # Return to HEART
