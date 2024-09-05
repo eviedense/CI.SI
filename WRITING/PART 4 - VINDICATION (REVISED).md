@@ -223,7 +223,7 @@ On her way out of the building, Cisila pulled out her revolver and finally shot 
 
 *After losing during the downhill road battle, Stephanie returns to the investigation. Cisila has stopped answering her calls, having found Lyla- though this is unknown to Stephanie, but known to us through the previous chapter. She worries about Cisila briefly, learning that the Haze comes from the Syndicates, but quickly turns her thoughts back over to the investigation and goes over what she has. Each victim was connected to the LHD-0404 project in one way or another. All Equinox employees were murdered for possibly being against LHD-0404, while the Carbine Industries victims' reasons for murder remain unknown. She thinks of how to obtain any information on Carbine Industries, before suddenly remembering...Maria, her sister, works for Carbine. Calling Maria, she explains what's happened. Maria quickly rushes out of her workplace, explaining afterwards that people were listening. Before Maria begins though, she apologizes for what happened with their mother. She explains that she didn't want to be the one to tell Stephanie to stay away, but had no choice in the matter. After Stephanie left that night, her mother took out the remaining anger she had on Maria. Stephanie assures her it's fine, and urges her to explain the Carbine situation. The two victims were higher-ups working on a weapons project, pre-emptively named Haze. Stephanie notes the identical name to the inhaler, and continues to listen. It sounds like a new weapons system focused on quietly dispatching assailants and/or turning them away via illusions, warping vision, and mental shutdowns. Stephanie slides down her chair the more she listens. The more she hears, the more it sounds exactly like the Drug. It becomes a lot clearer all of a sudden: Equinox Medical must have been supplying the drug for the weapons systems.*
 
-*Maria quickly ends the call with a remark that she's been spotted. Stephanie immediately begins to worry, and similar to how Cisila broke into the Equinox Medical building, she heads for the Carbine Industries Chicago outlet, in her R32. Rolling into the parking lot, Stephanie is almost immediately surrounded by what look like Syndicate members, climbing out of white vans as Maria suddenly bursts through the doors of the Carbine Industries building, and immediately recognizes the R32. Sprinting to the car, she leaps in and screams at Stephanie that they need to run. Recognizing that the Syndicate is the Dragons, Stephanie immediately takes reaction. Cue RUNNING IN THE 90'S by Max Coveri for the first car chase/fight scene hybrid in the whole story. This is going to be long, focused on the integrity and understeer of the R32 under pressure while being chased (this will likely make up majority of the chapter and could make this one specifically be incredibly long).* \
+*Maria quickly ends the call with a remark that she's been spotted. Stephanie immediately begins to worry, and similar to how Cisila broke into the Equinox Medical building, she heads for the Carbine Industries Chicago outlet, in her R32. Rolling into the parking lot, Stephanie is almost immediately surrounded by what look like Syndicate members, climbing out of white vans as Maria suddenly bursts through the doors of the Carbine Industries building, and immediately recognizes the R32. Sprinting to the car, she leaps in and screams at Stephanie that they need to run. Recognizing that the Syndicate is the Dragons, Stephanie immediately takes reaction. Cue The Top by Ken Blast for the first car chase/fight scene hybrid in the whole story. This is going to be long, focused on the integrity and understeer of the R32 under pressure while being chased (this will likely make up majority of the chapter and could make this one specifically be incredibly long).* \
 *Escaping the Syndicates, Stephanie parks the R32 once they get out of Chicago at a park swathed in darkness. Stephanie and Maria sit down, and discuss what just happened. Maria knows that, despite her best efforts, someone still heard her. Carbine has been tightfisted in allowing people to talk about the weapons systems and LHD-0404, and Maria personally believes that the two companies, Carbine and Equinox Medical, are trying incredibly hard to keep the project from surfacing. It's the most plausible reason as to why Carbine and Equinox employees have been murdered. Maria seems unfazed.*
 
 *Getting back in the car, Stephanie drives Maria back to Equinox Medical after she thinks it's safe. Arriving there, for some reason...Stephanie fades out. She goes unconscious.*
@@ -259,7 +259,7 @@ On her way out of the building, Cisila pulled out her revolver and finally shot 
 ### NOVEMBER 8TH, 2035
 #### STEPHANIE LAYTON, 23
 
-*Talin and Stephanie make it out of the Equinox Medical building, only to discover that it was a bunker. Rushing back up onto the street through a manhole, Stephanie and Talin climb into the Nissan R32, and make an escape. On the way out, Cisila calls them, and tells them to go to a Lighthouse just outside the city, and gives directions. Almost as soon as they leave, they see that they're tailed. Two sleek, modern sports cars from the Syndicate. Two things have to happen in order for them to be able to get to the lighthouse: they need the route. And they need to lose the cars. And to do that, Stephanie makes a turn towards the area outside of the city, a road she knows that is extremely winding. The sports cars easily catch up to the R32, but once they reach the top of the mountain - a place exclusive to this universe - and the downhill drive begins, Stephanie overtakes them. Cue THE TOP by KEN BLAST for a battle for street superiority. Inspired directly by Initial D First Stage's TAKESHI NAKAZATO v. TAKUMI FUJIWARA fight, this exemplifies the control and power Stephanie has over the R32. "The R badge on the back...can you even get close enough to see it?!". Despite the superior hardware of the Syndicate cars and cons of the R32, Stephanie begins to lose them as the drivers lose control of their cars, smashing into the road barriers or crashing straight through them. "Now they've fallen, I'm at the top! Are you ready now to die?"*
+*Talin and Stephanie make it out of the Equinox Medical building, only to discover that it was a bunker. Rushing back up onto the street through a manhole, Stephanie and Talin climb into the Nissan R32, and make an escape. On the way out, Cisila calls them, and tells them to go to a Lighthouse just outside the city, and gives directions. Almost as soon as they leave, they see that they're tailed. Two sleek, modern sports cars from the Syndicate. Two things have to happen in order for them to be able to get to the lighthouse: they need the route. And they need to lose the cars. And to do that, Stephanie makes a turn towards the area outside of the city, a road she knows that is extremely winding. The sports cars easily catch up to the R32, but once they reach the top of Skeller Pass and the downhill drive begins, Stephanie overtakes them.*
 
 # 14
 # Let's Talk
@@ -274,34 +274,37 @@ On her way out of the building, Cisila pulled out her revolver and finally shot 
 
 *Down below, Cisila tries to talk to Talin, but we see that she's rather closed off, as opposed to when she's with Stephanie. Cisila relents, gets up, and heads over to Kasey. The two chat about what Kasey was up to in Japan, and Kasey is apprehensive to explain. When she learns what happened in Chicago, she's disappointed in Cisila, but pushes forward nonetheless, knowing that despite Cisila's own apprehension, the case has progressed smoothly, with the help of Stephanie, Talin, and Han Daehyun, whom we haven't seen for a majority of the chapters. She's also glad to know that the Haze inhaler was destroyed during the encounter with the cult.*
 
+
 # 15
-# Two Days To Relax, At Least For a Moment
+# Last Ditch Effort
 ### CHICAGO, ILLINOIS, U.S.A
 ### 1:45PM
 ### NOVEMBER 8TH, 2035
-#### STEPHANIE LAYTON, 23 & CISILA J. SIVETA, 26
+#### CISILA J. SIVETA, 26
 
-*A chapter focused on showing a brief break in the main story, where we see a vaguely normal set of days from Stephanie and Cisila's perspectives. Hopefully, this will be valuable worldbuilding to show how Chicago has changed since PALMER-EDEN's fall, because we've been too busy on the investigation to pay attention to the streets of Chicago.*
-
+*Cisila, Lyla and Kasey kick down the doors of Equinox Medical in order to stop the imminent announcement of LHD-0404 as a medical miracle. A big action set piece involving the three breaking through the defenses that the Medical company has: far more than it needs. When they get into the meeting room where it's about to happen, they are only met by Maria. She is revealed to be the mastermind and driving force behind LHD-0404. Cue The Way of Life from YAKUZA 6 for a surprise fight against Maria Layton, where Cisila demands to know why. Maria refuses to explain. Cisila is barely able to fight back against Maria, and after a lot of traded blows, Cisila, Lyla and Kasey are forced to run, and their only way out is through the windows. They have to fall several stories. Cisila holds onto Lyla and Kasey and the three crash through the windows, plummeting towards the ground. Cisila barely saves everybody from the fall with a combination of her grapple, EXO, and Construct.*
 
 # 16
+# La Lune des Dragons
+### CHICAGO, ILLINOIS, U.S.A
+### 4:31PM
+### NOVEMBER 9TH, 2035
+#### STEPHANIE LAYTON, 23
+
+*Stephanie and Talin head back to La Lune Brillante to find Han Daehyun, but are only met with the Dragons, who stop them from entering. They force their way through, and only find that Han has apparently fled the country due to the Dragons. The entire club is falling apart because of this, somehow...was Han hiding something? They don't have time to think about it, as a massive group of the Dragons gang up on them as they stand in the middle of the dance floor. Cue Defiant Charm from LIKE A DRAGON 8 for Stephanie and Talin's big fight. Stephanie is more combat focused, while Talin is technical, making use of her surroundings.*
+
+# 17
 # The Die Has Been Cast
 ### CHICAGO, ILLINOIS, U.S.A
 ### 9:31PM
-### NOVEMBER 10TH, 2035
+### NOVEMBER 11TH, 2035
 #### STEPHANIE LAYTON, 23 & CISILA J. SIVETA, 26
 
-*The group get back together at the Lighthouse at an odd time, and discuss what they've found throughout their separate investigations. This is a chapter to lay out the foundation of the mystery of LHD-0404, putting it together clearly. The cult, who Lyla informs the group seems to be using Haze. Carbine, who is using Haze for its new bioweapon systems. And Equinox Medical, who made Haze, or LHD-0404. The murderer, or the Crow, who seems to have been hired by the project leader of LHD-0404 to kill any and all people against the project. Who or why this is happening remains unknown, and the group begin to brainstorm who the project leader is, but they get nowhere. Instead of trying to figure it out on their own, Stephanie calls Maria, but when she picks up, Stephanie is met by the Crow instead. They state that they have Maria. They then tell Stephanie to go outside...Talin is watching Stephanie, nervously.*
-
-# 17
-# I Believe In You
-### CHICAGO, ILLINOIS, U.S.A
-### 10:02PM
-### NOVEMBER 9TH, 2035
-#### STEPHANIE LAYTON, 23 & CISILA J. SIVETA, 26
+*The group get back together at the Lighthouse at an odd time, and discuss what they've found throughout their separate investigations. This is a chapter to lay out the foundation of the mystery of LHD-0404, putting it together clearly. The cult, who Lyla informs the group seems to be using Haze. Carbine, who is using Haze for its new bioweapon systems. And Equinox Medical, who made Haze, or LHD-0404. The murderer, or the Crow, who seems to have been hired by the project leader of LHD-0404 to kill any and all people against the project. Who or why this is happening remains unknown, but Cisila, Lyla and Kasey learned who was behind it. It was Maria.* \
+*But Stephanie suddenly gets a mysterious call...and it's from the Crow. It states it has Maria. That Cisila is lying. To come outside, and it will give Stephanie Maria. Stephanie's brow furrows, she looks at Cisila, and walks outside.*
 
 *Stephanie and the group step outside, only for the Crow to emerge from the darkness around the Lighthouse, and pulls out a gun. They shoot Cisila, Lyla and Kasey before anybody can do anything. Putting the gun away and staring at Stephanie and Talin, the Crow backs away and enters a car, driving away. When Stephanie wonders out loud how they were found...Talin quietly says "It was me. I'm sorry."* \
-*Stephanie turns to Talin, shocked. Talin, regretfully, pulls out her own pistol, and points it at Stephanie. "They told me I'd have to kill you, them, and then myself." But before Talin can do anything, Cisila wrenches the gun out of Talin's hands and throws it into the ocean. Talin punches Cisila in the face with surprising strength, before turning towards Stephanie. Cue I BELIEVE IN YOU from YAKUZA 5 for an unexpected fight against Talin. When the fight ends, Talin collapses, and tells Stephanie one thing.*
+*Stephanie turns to Talin, shocked. Talin, surprisingly emotionless, pulls out her own pistol, and points it at Stephanie. "They told me I'd have to kill you, them, and then myself." But before Talin can do anything, Cisila wrenches the gun out of Talin's hands and throws it into the ocean. Talin punches Cisila in the face with surprising strength, before turning towards Stephanie, something seeming to have changed about her. Cue I BELIEVE IN YOU from YAKUZA 5 for an unexpected fight against Talin. When the fight ends, Talin collapses, and tells Stephanie one thing.*
 
 *"It's Maria..." She mumbles, despondent. "You need to snap her out of it."* \
 *And then, with that, Stephanie pulls out her phone only to see a news notification. "LHD-0404 'HAZE' PROJECT TO BE ANNOUNCED TODAY"* \
@@ -311,7 +314,7 @@ On her way out of the building, Cisila pulled out her revolver and finally shot 
 # Chase Of Your Nightmares
 ### CHICAGO, ILLINOIS, U.S.A
 ### 10:17PM
-### NOVEMBER 9TH, 2035
+### NOVEMBER 11TH, 2035
 #### STEPHANIE LAYTON, 23 & CISILA J. SIVETA, 26
 
 *Getting into the R32, Stephanie and Cisila take off after the Crow, who seems to be heading for the mountain, or Skeller Pass as we find its name out. But as they get to the top, Stephanie spots cars behind them in the rearview mirrors. Syndicate cars. Just before the craziness begins, she reflects on what's just happened. Talin was forcefully turned against them by Maria, and the Crow just shot Lyla, Kasey, and Cisila. They might be patched up now, but that's not all the Crow has done. Under Maria's command, the murderer has killed a dozen people to keep a project's true intentions below ground. And just now, Equinox Medical seems to be planning a ruse. A fake interview or something to cover up LHD-0404, Haze, as something much better. But they're living on borrowed time as Cisila and Stephanie go after the Crow, and then...unfortunately, Maria.*
@@ -337,31 +340,31 @@ As the Syndicate car drew closer, Stephanie pulled the R32 to the far left of th
 
 
 # 19
-# Stop Them
+# Stop It
 ### CHICAGO, ILLINOIS, U.S.A
 ### 10:38PM
-### NOVEMBER 9TH, 2035
+### NOVEMBER 11TH, 2035
 #### CISILA J. SIVETA, 26
 
 # 20
 # Murderer
 ### CHICAGO, ILLINOIS, U.S.A
 ### 11:10PM
-### NOVEMBER 9TH, 2035
+### NOVEMBER 11TH, 2035
 #### CISILA J. SIVETA, 26
 
 # 21
 # Destiny
 ### CHICAGO, ILLINOIS, U.S.A
 ### 11:11PM
-### NOVEMBER 9TH, 2035
+### NOVEMBER 11TH, 2035
 #### STEPHANIE LAYTON, 23
 
 # 22
 # It's Over
 ### CHICAGO, ILLINOIS, U.S.A
 ### 7:01AM
-### NOVEMBER 10TH, 2035
+### NOVEMBER 11TH, 2035
 #### STEPHANIE LAYTON, 23 & CISILA J. SIVETA, 26
 
 # EPILOGUE
