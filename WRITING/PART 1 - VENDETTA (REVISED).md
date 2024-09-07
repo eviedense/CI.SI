@@ -55,6 +55,17 @@ Whatever the rest of PALMER-EDEN's response was, she didn't get to hear it. The 
 "Well, I can help out with this, but...not right now. I don't think it's a good idea for you to work looking like this. You've still got some dried blood on your face." Cisila's eyebrows furrowed, and she looked worried. "Really? Ah, shit...I..." She leaned back, but Lyla reassured her, "It's fine. You don't look like you killed someone, at least." Cisila nodded, and responded, "That's good at least. If- if I can get cleaned up, I still want to work. I told myself I had to." and she slowly got up. Lyla got up aswell, "You sure? You look dead tired, Cisila." she pointed out. That was true, yes, but Cisila was determined to work. "I'm good. I'm fine." She waved Lyla away, "I'll...I'll go to the washroom and clean up." Lyla clicked her tongue. "If you say so. Come to talk to me later." And Cisila nodded, heading to the bathroom.
 
 # 3
+# Impromptu Customer
+### CHICAGO, ILLINOIS, U.S.A
+### 4:30PM, CST
+### SEPTEMBER 29TH, 2033
+#### CISILA J. SIVETA, 24
+
+*A proper intro to the Crimson Bookstore in Chicago, showing Cisila's daily routine with sorting books, helping customers, and so on. She guides a man to a book series she herself used to love, and they have a conversation. The man asks for her number. A little nervously, Cisila clarifies that she doesn't like men. Surprised, the man apologizes and asks if they can at least hang out- they seem to share interests. A little starved for friendship, Cisila takes him up on the offer. After this, we meet Cisila's coworkers, and also get a proper introduction to Lyla.* \
+*Upon leaving the bookstore, Cisila meets up with the man, and we discover his name. Malcolm. The two talk about their interests and eventually discover that they have a lot more in common than they thought. Cisila is glad to have made a friend like this, even if it was in a slightly odd way.*
+
+
+# 4
 # Zero Hour
 ### CHICAGO, ILLINOIS, U.S.A
 ### 4:30PM, CST
@@ -63,7 +74,7 @@ Whatever the rest of PALMER-EDEN's response was, she didn't get to hear it. The 
 
 <sup><sub>Note: Cue in jeopardy from JUDGMENT/JUDGE EYES</sub></sup>
 
-As Cisila stepped out of the bookstore, her shift being over, her phone rang. A call. She pulled her phone out of her pocket and looked at the caller. It was one of her few actual friends, Kasey. She answered the call and held her phone up to the side of her head, "Yo?" Cisila said. "I've got something to show you, Cisi." Kasey said, sounding rather tired. More tired than Cisila, maybe. "What's up?" She asked. Kasey took a good moment to respond, "Uh...well," Cisila could hear the sifting of papers, "I found something you might want to look into." Kasey finally said. Kasey was a detective, and, unlike most claiming to be a detective, actually had her own business. She didn't get many jobs under that business, but whatever she did get, it was enough to keep her afloat. "Alright. Should I head over?" Cisila asked, looking around the block. "Yeah, that'd be nice." Kasey responded. Cisila started heading down the sidewalk, heading for the building where Kasey lived- and also where her detective business was located. "Can you...maybe explain this a bit, though?" Cisila asked. "Kind of improptu." She added. "Yeah, sorry," Kasey said, "It's something that might concern you- and I'm kinda worried someone might end up pinning it on you-" She paused, "...that is to say, V, sorry." She added. Kasey was the only one who knew, other than Dani, what Cisila did at night. "Right." Cisila said. "Who's it concern?" Kasey sharply inhaled over the phone, "So, you know how you asked me to locate all three leaders of the syndicates in the city?" She explained. "I found them. And one of them definitely matches your description." Cisila felt her stomach rise. "Really?" She said. "Y- Yeah." Kasey mumbled, "Thing is...it seems like he was murdered. A couple hours ago." Cisila's face fell. She picked up her pace down the sidewalk, "Why?" she asked, trying to sort this out in her head. "Why do you think I'm telling you?! You're the only one who was looking for him. Someone must have caught onto that somehow." Kasey said. "That's a bit of a stretch." Cisila said through gritted teeth, "It could just be a coincidence. And if it is, *fuck."* she spat that last word out with a malicious tone. "Where's the body?" Cisila asked. Kasey took a moment to respond. "Pretty close to your apartment. I was going to ask you to go take a look. I can send the address." She said. *Gah.* Cisila thought. *That man was my only lead on why my mother was killed- forget the other two, he shot first. And one of them didn't even shoot.* She believed that PALMER-EDEN had hired the syndicates to murder her mother in cold blood. The question was why. Why bother with organized crime at all? She knew why her mother had been killed...but the reason for choosing the syndicates eluded her. And she had a feeling it would continue to. "I'll go now." Cisila relented, slowing down. She turned a corner and headed for the subway. "This is bad." She mumbled. "No kidding..." Kasey said. "Keep me updated. Get pictures. Y'know the drill at this point, right?" Kasey suddenly blurted. Cisila sighed, "Yeah. No problem." She ducked down into the subway, hung up on Kasey, rushed down the steps and waited for a train to arrive.
+The next day, after Cisila stepped out of the bookstore, her shift being over once more, her phone rang. A call. She pulled her phone out of her pocket and looked at the caller. It was one of her few actual friends, Kasey. She answered the call and held her phone up to the side of her head, "Yo?" Cisila said. "I've got something to show you, Cisi." Kasey said, sounding rather tired. More tired than Cisila, maybe. "What's up?" She asked. Kasey took a good moment to respond, "Uh...well," Cisila could hear the sifting of papers, "I found something you might want to look into." Kasey finally said. Kasey was a detective, and, unlike most claiming to be a detective, actually had her own business. She didn't get many jobs under that business, but whatever she did get, it was enough to keep her afloat. "Alright. Should I head over?" Cisila asked, looking around the block. "Yeah, that'd be nice." Kasey responded. Cisila started heading down the sidewalk, heading for the building where Kasey lived- and also where her detective business was located. "Can you...maybe explain this a bit, though?" Cisila asked. "Kind of improptu." She added. "Yeah, sorry," Kasey said, "It's something that might concern you- and I'm kinda worried someone might end up pinning it on you-" She paused, "...that is to say, V, sorry." She added. Kasey was the only one who knew, other than Dani, what Cisila did at night. "Right." Cisila said. "Who's it concern?" Kasey sharply inhaled over the phone, "So, you know how you asked me to locate all three leaders of the syndicates in the city?" She explained. "I found them. And one of them definitely matches your description." Cisila felt her stomach rise. "Really?" She said. "Y- Yeah." Kasey mumbled, "Thing is...it seems like he was murdered. A couple hours ago." Cisila's face fell. She picked up her pace down the sidewalk, "Why?" she asked, trying to sort this out in her head. "Why do you think I'm telling you?! You're the only one who was looking for him. Someone must have caught onto that somehow." Kasey said. "That's a bit of a stretch." Cisila said through gritted teeth, "It could just be a coincidence. And if it is, *fuck."* she spat that last word out with a malicious tone. "Where's the body?" Cisila asked. Kasey took a moment to respond. "Pretty close to your apartment. I was going to ask you to go take a look. I can send the address." She said. *Gah.* Cisila thought. *That man was my only lead on why my mother was killed- forget the other two, he shot first. And one of them didn't even shoot.* She believed that PALMER-EDEN had hired the syndicates to murder her mother in cold blood. The question was why. Why bother with organized crime at all? She knew why her mother had been killed...but the reason for choosing the syndicates eluded her. And she had a feeling it would continue to. "I'll go now." Cisila relented, slowing down. She turned a corner and headed for the subway. "This is bad." She mumbled. "No kidding..." Kasey said. "Keep me updated. Get pictures. Y'know the drill at this point, right?" Kasey suddenly blurted. Cisila sighed, "Yeah. No problem." She ducked down into the subway, hung up on Kasey, rushed down the steps and waited for a train to arrive.
 
 Her mind was racing at the possibilities. Someone had murdered an important underworld figure. It was entirely possible this was just some kind of dispute. But it was also possible that it could've been because she was looking for him. *Either of these are possible. Or it could be something completely different.* She couldn't shake the feeling that it was because she was looking for the man- her memory of his face was as clear as day. Cisila knew she'd seen it again in Chicago. She could've gotten to him, and forced the information out of him. But if he was dead, her chance was gone. It would be back to square one unless she could figure out why he was murdered. And who did it. If it was connected to her, then it might have been PALMER-EDEN. She knew their track record, and she thought they were tying up loose ends. A clean murder staged to look like a gang shootout was her first thought as she boarded the train. It felt as though the ride took *ages,* but in reality, it was only a few minutes. Cisila stepped off the train and rushed back up the steps and out of the subway. *Almost there.* She thought, now almost sprinting down the sidewalk past her apartment. She whipped out her phone again and checked Kasey's message, making her way to the address. Cisila slid to a stop at the address, looking up at the building. It was another apartment complex. The interior lobby looked fine, but then her eyes flicked over to an alleyway between the apartments and another building. Cautiously, she took a step towards the alleyway, and peeked in. It was a surprisingly wide alleyway, filled with trash cans, dumpsters, and trash bags. Police tape had been put up at the entrance. But at the end...Cisila squinted. In the shadows, it looked as though there was a body slumped against the wall. And a *lot* of blood. Far too much. *...That doesn't look like it was a fight.* Had PALMER-EDEN given up on being sly? She stepped into the alleyway slowly, ducking under the police tape, and taking careful steps towards the body. And as she got closer, and closer...it stopped looking like PALMER-EDEN's work. It stopped looking like a gang fight. The body looked as though it was torn apart. 
 
@@ -77,7 +88,7 @@ She climbed in through a window, and, having notified Kasey, was able to get in 
 
 Cisila reclined in her chair, and pulled out her phone. The sun was beginning to set, and in Kasey's office, no lights were on. Shadows cast by the city outside loomed around Cisila and Kasey, as the sun lowered slowly. Kasey clicked her tongue suddenly, "Bingo." she said. Kasey turned her laptop towards Cisila, and the screen displayed a picture that matched the man's look exactly. "This is him, a couple months ago." Kasey explained. "It's a news article. An exposé article written by a news reporter. It was pulled off the internet, but," Kasey slid a finger down the trackpad of the laptop, scrolling down the article. "I found it. It's definitely him." Cisila's eyes scanned the article, and, to her, it confirmed that it was indeed the man she was looking for. "It's got to be him." She said. "There's no way it isn't." Crossing her arms, she leaned back in her chair, "Which means we have another problem..." Cisila said, and Kasey nodded. "Who killed him?" Kasey asked. "And why?" Cisila sighed, tapping a finger on her forearm while her arms were crossed. "I think we need to figure out if there's something going with the three Syndicates." She said. "If there's something going on with them, we can rule it out as a casualty of gang warfare. That narrows it down, doesn't it?" Kasey turned her laptop back towards herself, and stretched. "I- think so." She said, stretching her arms over her head. "But there's kind of only one way to confirm that..." Cisila cocked her head, "How?" She asked. "The police keep a sharp eye on the Syndicates." Kasey explained, "If you can get into their headquarters, into their evidence room or some shit- I bet you'll find something." Cisila nodded. "Right. I guess I'll get Dani to take care of that." She said, but Kasey shook her head. "I think you should do it. Dani's not gonna be inclined to help." Cisila pursed her lips. "Right...fine." She uncrossed her arms and got up, "I'll go get some sleep, then. I'll message you when I'm about to leave for the station, so you know." Kasey nodded, and said, "Good luck.". Cisila opened one of the many windows in Kasey's office and leaped out, using her grapple gun to propel herself across the street. For now, she'd head back home.
 
-# 4
+# 5
 # Decisions
 ### CHICAGO, ILLINOIS, U.S.A
 ### 8:30PM, CST
@@ -102,7 +113,7 @@ Hours later, she was now at her small kitchen inset. It was now the morning of t
 
 "Well, first and foremost..." They started, "it's not going to be me. I've got...too many things to do today. I'll get Zephyr to go with you- he's pretty suited for this kind of thing, I think." *Zephyr.* She recognized that name. It had something to do with Kasey... "He'll follow you like a shadow until you get attacked- which, let's be honest, is a surefire occurrance as soon as you step inside- and he'll jump in to help you. Once you get their attention, you need to find out where in the casino they're keeping that thing. Should be simple." Dani continued to explain, before Cisila suddenly blurted out, "So- hang on-" She shook her head, "I'm just going to waltz in like I own the place?!" She exclaimed. "Yes. You're not sneaking through there. Security's tight, y'know? Not worth it to sneak through." Dani replied, "Better to bust some skulls than to waste time." Cisila thought about this- and realized Dani was correct. At least, from her point of view. There wasn't any time to waste- they might destroy the evidence in the folder. Realizing this, and how desperate the man seemed, Cisila got up. "Got it, then. I think I'll just get this over with now. Can you get that guy ready to follow me?" She asked, firmly. Her mind was set. "What?" Dani seemed slightly shocked. "Uh- Okay. I was thinking you'd do a little later in the day..." Cisila shook her head, "No. Hell no. This is top priority. I've got a thing or two to ask those Syndicate fucks anyways." she asserted. "I'm going." *This is a terrible idea.* Her mind echoed. *No, no it's not...is it? It is. No, it's not.* The inside of her mind was like a waging war between *Bad idea* and *Just get it over with*, and she had decided to get it over with. Quickly, she got ready. Pulling on the jacket she used for going out as V, she walked into her bedroom and pulled up the loose floorboard where she hid her mask. It sat there silently. And she picked it up, and stashed it back inside her satchel, of which she'd already pulled on. Cisila pulled open the window in her bedroom and climbed out, shutting it behind her. The cool air of midday September hit her pretty fast, as she pulled her mask on. It clicked and seemed to fasten to her face easily, as she leaped off the fire escape and fired her EXO's grapple just as she had a couple nights previously. She was heading straight for High-Stakes.
 
-# 5
+# 6
 # Work It, Fix It, Rock
 ### CHICAGO, ILLINOIS, U.S.A
 ### 2:27PM, CST
@@ -131,7 +142,7 @@ Dan linked his fingers together. He sighed. "The captain I had to deal with...he
 
 She'd have to pass the by members she'd killed. Something about that felt off. A little doubt had cemented itself in her head, but it had no voice yet.
 
-# 6
+# 7
 # Sweetheart
 ### CHICAGO, ILLINOIS, U.S.A
 ### 8:07AM, CST
@@ -158,7 +169,7 @@ Lyla didn't respond, but her grip on Cisila's shoulder tightened a bit. "...I ne
 
 Time passed. It didn't feel like it, though. Cisila felt as though she was frozen in time, against Lyla's shoulder. She cried even harder, feeling the immense weight of all her stress press down on her. It was like years worth of built up stress was flowing out of her eyes as tears. Cisila had never had time to think, to slow down and let herself breathe. But Lyla *let* her. And Lyla seemed to understand Cisila's problem. The overwhelming stress of *everything* seemed to compress down on Lyla aswell, but what it was for her, Cisila didn't know. Cisila didn't *care.* She clung onto Lyla, and slowly felt herself calm down. The tears begin to slow down, and she sniffled. They were both in silence, and all Cisila could hear was Lyla's breathing. It was a little shaky. Lyla slowly set her left hand down on the side of the couch, putting something down. *Probably her phone...* Cisila thought to herself. She hiccuped a little, and sat up. Swallowing, she rubbed her eyes. "S-Sorry about that." She mumbled. "Thanks for-" What would she even say? 'Thanks for letting me sob into your shoulder'? She sat there with her mouth open. Lyla nodded, "No worries. No. Seriously." and she hugged Cisila properly. "...I think *I* needed that." Lyla awkwardly giggled. Cisila sniffled again, "...Yeah. Yes. Thank you." and she pulled herself out of Lyla's arms. Getting up, she stretched, "...Ooh, yikes..." she muttered, feeling her spine crackle. She rubbed her nose, and turned towards Lyla, "Look, uh..." Cisila began to say, "...I can...put something on. To watch." Awkwardly checking her watch, "...s'kinda late, though..." Cisila mumbled. Lyla shook her head. "No biggie. It's Saturday tomorrow, isn't it? We're closed. I can stay." She said happily. Cisila blinked. *Stay?* Lyla wanted to *STAY?* Cisila suddenly jerked her head into a nod, "YES!" She yelped. "Absolutely! Okay, yeah...yeah!" Cisila already felt much happier. But having Lyla stay? That made her feel the most happy she'd felt in *ages.* Ever since the first day she'd talked to Lyla, two years ago, she hadn't been able to reach that level of happiness. But now she'd surpassed it. *Far* surpassed it. And that was enough for her.
 
-# 7
+# 8
 # Trip & Fall
 ### CHICAGO, ILLINOIS, U.S.A
 ### 12:07PM, CST
@@ -191,7 +202,7 @@ Knocking down another officer, Cisila sprinted towards the maintenance door. Cra
 
 But before she hit the ground, she fired her grapple gun. In the blink of an eye, she disappeared.
 
-# 8
+# 9
 # Take a Break
 ### CHICAGO, ILLINOIS, U.S.A
 ### 3:26PM, CST
@@ -218,7 +229,7 @@ The notebook detailed most of the interview in dot jots, and most of it was stuf
 
 *I think this is just what I need. It has to be.*
 
-# 9
+# 10
 # My Place To Hide
 ### CHICAGO, ILLINOIS, U.S.A
 ### 5:31PM, CST
@@ -249,7 +260,7 @@ She'd give the other necklace to Lyla.
 
 That much she knew.
 
-# 10
+# 11
 # The Spider's Web
 ### CHICAGO, ILLINOIS, U.S.A
 ### 2:00PM, CST
@@ -302,7 +313,7 @@ But as she sprinted away, parkouring her way across the buildings, one thing sto
 But if push came to shove, neither was Cisila.
 
 
-# 11
+# 12
 # Assault Under Thunder
 ### CHICAGO, ILLINOIS, U.S.A
 ### 6:57PM, CST
@@ -358,7 +369,7 @@ Her fist slammed straight into Lyla's jaw. There was a stiff *crack* as Lyla's m
 
 She sliced through the air more, her footwork bringing her closer to Cisila with each slice. Cisila continued to back up and dodge out of the way. Cisila realized the plastic chair Lyla was tied to was behind her. If she was fast enough, she could use it to interrupt Lyla's attack. Grabbing onto it as she got close enough, Cisila catapulted the plastic chair straight it Lyla with as strong of a throw as she could muster. Lyla broke through the chair as it was flung at her and lunged at Cisila once more. Cisila lunged forward aswell, thrusting her fist forward. Lyla's claws went straight into Cisila's stomach as Cisila's fist connected with Lyla's face. Cisila's eyes went wide. And, strangely...so did Lyla's. Blood seeped through Cisila's purple shirt, staining it. Lyla was frozen. Cisila didn't feel like she could move. Suddenly, she coughed. Blood spat out of her mouth, and Lyla flinched. She pulled her claws out in a jolted motion, stumbling back from Cisila. Cisila coughed up more blood. Her eyes her wide. She looked down at her hands. *I'm...going to die.* She realized. It was all too sudden. "Cisila-" Lyla sputtered. "Cisila...?" Lyla couldn't speak. Her voice seemed to be cracking. "...I just did it..." She whispered to herself. What had happened to Lyla...? Cisila began to hear the loud, sharp and piercing sound of buzzing in her ears. She was losing a lot of blood. Cisila looked up at Lyla, and through her yellowing vision, she could barely see Lyla. Cisila opened her mouth to say something, but words eluded her. Her legs gave out. She hit the floor hard, and as her head smashed against the concrete, she was suddenly out cold.
 
-# 12
+# 13
 # Wounded Beast
 ### CHICAGO, ILLINOIS, U.S.A
 ### 12:01AM, CST
@@ -404,7 +415,7 @@ Lyla shook Cisila. "Fuck." She hissed. "Motherfucker...why...?!" But Cisila was 
 
 Lyla collapsed next to Cisila. 
 
-# 13
+# 14
 # Reboot
 ### CHICAGO, ILLINOIS, U.S.A
 ### 9:10AM, CST
@@ -443,7 +454,7 @@ She wasn't sure. The uncertainty stirred in her as she stared out at the lake. I
 
 Silently, as she stared out at the horizon, she made a choice. She wasn't sure of it before, but she was now. No more people would die at her hands- or at least, she would try her hardest not to let that happen. Injuries and the regret that followed a fight were far more than enough, and had so many more repercussions as opposed to death. Death was the easy way out. Death was like snapping a wire in two, severing a connection that was needed. The SWAT teams that awaited the group at the police station didn't know the truth. They didn't deserve to die. And neither had the Syndicate members she'd stabbed, shot, or beat to death.
 
-# 14
+# 15
 # Break In, Break Out
 ### CHICAGO, ILLINOIS, U.S.A
 ### 11:25AM, CST
@@ -480,7 +491,7 @@ The team leader turned back towards the group, and put their walkie-talkie away.
 It was like a tsunami was heading straight towards the four. A tsunami of riot shields, police batons, and shotguns. Dani and Kasey rushed forward first, ducking and weaving through the shields to bring down the first wave of defense. Cisila let her heavy revolver construct itself in her hand before she barreled straight towards the path that Dani had made through the first defense of riot shields. She aimed her revolver at the nearest shotgunner she could spot, and pulled the trigger. The deafening *bang* echoed through the atrium. Instead of going for the head, she went for the man's hands. Getting the gun out of his hands was paramount, and as she ducked under a police baton swing that had come out of nowhere, she fired again. Another *bang*. Her first shot didn't connect, but the second one did. Two bullets down, four to go before a reload. Letting go of her revolver, it disappeared back into her hand and she slammed her body into the shotgunner, bashing the man away and forcing him to drop the shotgun. Cisila delivered a powerful haymaker punch to the man's face, cracking the faceshield attached to his helmet. Her fist went through the plexi-glass and bashed into his nose. She followed it up with a swift one, two, and three punches. Left, right, and into an uppercut. The man hit the floor, and Cisila wasn't allowed any time to breathe. She was forced to counter several attacks at once, and got a swift baton hit to the face, her head snapping to the side due to the force of the hit. She steadied her balance and slammed her head into the one wielding the baton, knocking him back. This allowed her to counter another ham-fisted baton swing, which she caught in her hands and yanked it out of the assailant's hands. Flipping it around, she whacked the man across the face, sending him barreling into other colleagues. Lyla, Kasey and Dani were fighting hard around Cisila, when she suddenly noticed another shotgunner quickly approaching Dani from behind. Her pistol, on command, re-constructed in her hand and she quickly pulled the trigger. A third earbleed inducing *BANG* rattled from the revolver, the bullet flying straight towards the shotgunner. It hit him in the legs. He toppled to the ground, the shotgun flying out of his hands. Cisila rushed forward and caught the shotgun by the barrel, and swung it around to whack another SWAT member in the head. The herd was beginning to thin out, but the entire HQ had to be filled with SWAT teams. This was only the beginning. She threw the shotgun to Dani, who used it just like Cisila had: as a bludgeon. One, two, three and then four SWAT assailants were brought down by Dani's heavy swings. They threw the shotgun down and countered a baton wielder's attack, stopping their attack before slamming them into the ground and stomping on their head. Kasey was using her advanced martial arts, weaving around her opponents swiftly, not getting touched once. Lyla was...brutal, Cisila noticed. She wasn't using her claws, but her punches were rough and she wasn't pulling them. \
 "They're down!" Dani said in a raised voice, and they pointed towards the stairs to the second level. "We need to go. They know we're here, and they might be moving the evidence." Cisila nodded, and rushed up the stairs. The light metal *thunked* with each rapid step she took, as did the others' steps as they followd her up. They rushed down the main hallway of the second floor and headed for the main staircase in the middle of the building. "Evidence lockers should be on the fifth floor!" Cisila said, looking back at the other three. "That's three more levels to go up. And a lot more problems to deal with." Kasey chipped in, catching up to Cisila. 
 
-# 15
+# 16
 # Connecting The Dots
 ### CHICAGO, ILLINOIS, U.S.A
 ### 12:02PM, CST
@@ -490,7 +501,7 @@ It was like a tsunami was heading straight towards the four. A tsunami of riot s
 *Once Cisila gets her hands on the evidence, the group head back to Cisila's apartment and piece together everything that the police have hidden. First and foremost, all the identities of the victims. Each are a core part to the infrastructure of the city, one way or the other. The Syndicate leaders, the police chief...aswell as city council members, which Cisila hadn't realize before. Seeing this, the group figure out what Mikhail is trying to do: destabilize the city. Deep in the folder, they find a picture that a detective had taken of a pinboard that seems to have been made by Mikhail. Each murder that had already happened were crossed out with thick, red paint. The two Syndicate leaders, the police chief, and the city council members. But in the centre of all the pictures, one remains: The mayor of Chicago. The group formulate a plan to figure out where, when, and how Mikhail is going to commit this murder. The police won't help them, not after what happened. But maybe the Syndicates might. Maybe if the Dragons found out what Mikhail was planning...they would retaliate. Cisila calls up Dan, and informs him of what's happening. Of what Mikhail will do to the city, and Cisila urges him to tell the Dragons. Dan resists for a small bit, before accepting. He's terrified of the consequences of doing it, and even not doing it.* \
 *And frankly, so is Cisila. The Syndicates erupting could cause chaos.*
 
-# 16
+# 17
 # Timing is Everything
 ### CHICAGO, ILLINOIS, U.S.A
 ### 4:23PM, CST
@@ -500,7 +511,7 @@ It was like a tsunami was heading straight towards the four. A tsunami of riot s
 *Cisila meets with Kasey at her office, and they discuss Mikhail's plan. They're still unsure of when it will take place, but they know from Lyla's recent investigations that Mikhail wants to do it during a public event. A showcase of his control over the city. As they talk, Cisila gets a call from Dan. She picks it up, and from Dan, receives the information of when the murder will take place. New Year's Eve, almost certainly just as the ball drops. When Cisila asks how Dan learned this, he reports that the Dragons basically kicked Mikhail out of the Syndicate, abandoning them. They hoarded his plans, but are unable to do anything with them due to Mikhail's control over the police. The man in the blue suit whom Cisila fought at the construction site and at the P.D HQ has fled with Mikhail, meaning that he was a part of the plan. Cisila urges Dan not to let the Dragons get out of hand, especially during New Year's Eve. Things could get extremely messy, with the police protection around the mayor of Chicago and Mikhail's control over them. The man can slip right through security easily, while Cisila and the group will have to fight their way up the Pierce Building, where the Mayor will be set up for a livestream. The security is the tightest that the police can offer, but Cisila will try to convince them that the mayor is in danger. Whatever it takes, she will get up there. Dan pledges to make sure the Dragons stay out of it, but Cisila has a feeling that a stern talking-to won't do it.* \
 *On her way back home, Cisila stops by a store that she hadn't noticed before. A small store specializing in PC parts, and she notices that there's nobody inside, aside from an employee at the desk. A piece of paper has been taped to the glass door, and looking at it, she notices they're looking for people to hire. Her job at the library is nice, but she needs...just a little bit more money to keep herself afloat, especially during a time where she'll be looking after herself more than often, in preparation for the fight against Mikhail. Stepping in, she asks the employee at the cash about the paper, and the girl lights up. She's one of two employees in the small store, and almost on the spot, she hires Cisila. Cisila is a little taken aback, but her vague interest in computers drove her to accept, and again, a little bit more money was always worth it.*
 
-# 17
+# 18
 # Day In, Day Out Again
 ### CHICAGO, ILLINOIS, U.S.A
 ### 10:02PM, CST
@@ -510,7 +521,7 @@ It was like a tsunami was heading straight towards the four. A tsunami of riot s
 *A worldbuilding chapter focused on Cisila taking a walk back home from the PC store at night, in the cold. We see the city in November, where it has begun to snow. Christmas decorations are beginning to be put up. It's cold. She can taste the coldness in the air, and her breath is visible. A calm winter night, with the moon peeking through the clouds as snow falls. After 17 chapters, we see that Cisila has finally changed her outfit for a longer duration: Instead of her purple T-shirt, she wears a purple turtleneck and black cargo pants, aswell as nice gloves and a pair of hiking boots. She's still got her satchel.* \
 *This chapter will be focused on the route between the PC Parts Shop and Cisila's apartment, showing the environment she lives in. It's pleasant, but later at night, it feels a bit empty. Cisila's life is looking up at this point, despite the pressure of the inevitable Mikhail fight looming ahead of her. She can see the Pierce Building in the skyline, and when she looks at it, she feels dread, despite life going slow. Her relationships have been building up, and remembering this, she checks her watch. It's time for her to go see Lyla.*
 
-# 18
+# 19
 # Lyla
 ### CHICAGO, ILLINOIS, U.S.A
 ### 11:34PM, CST
@@ -553,7 +564,7 @@ But that hadn't been on purpose, surely. That hadn't been Mikhail's fault. It wa
 
 
 
-# 19
+# 20
 # Getting Close
 ### CHICAGO, ILLINOIS, U.S.A
 ### 12:45PM, CST
@@ -563,7 +574,7 @@ But that hadn't been on purpose, surely. That hadn't been Mikhail's fault. It wa
 *A chapter focused on the PC store, and Cisila's new friends there. In addition to that, we see Cisila's apartment again once the day ends. Similarly to 17, this is more worldbuilding.*
 
 
-# 20
+# 21
 # Demon
 ### CHICAGO, ILLINOIS, U.S.A
 ### 9:00AM, CST
@@ -646,7 +657,7 @@ Sighing, Cisila shut her eyes. She'd have to work hard to make sure she didn't g
 But to do that, she'd have to get past the upcoming scuffle against Mikhail. \
 And that was soon. Fifteen days.
 
-# 21
+# 22
 # Ticking Bomb
 ### CHICAGO, ILLINOIS, U.S.A
 ### 9:00PM, CST
@@ -656,7 +667,7 @@ And that was soon. Fifteen days.
 *The day before New Years' Eve, five days after Christmas Day. The main group gets back together and makes sure everything is ready for the following day. They plot out their route, and talk about how they're going to confront Mikhail. Cisila is unsure of what to do with him...he had escaped during the last fight, a couple weeks ago, and she hasn't seen him since. She's not sure she can stop herself from killing him after what he nearly did.*
 
 
-# 22
+# 23
 # Countdown
 ### CHICAGO, ILLINOIS, U.S.A
 ### 11:00PM, CST
@@ -668,7 +679,7 @@ And that was soon. Fifteen days.
 *The further up they get, the more desperate the police and Dragons get. The more vicious they become. They're unsure of themselves, and some even back down upon seeing Cisila and the group. The group learn that the police have been threatened by Mikhail with an exposé on the department's shenanigans. They have no choice, and the ones that need the protection are the ones that fight the hardest. The Dragons just want revenge, but when confronted, some back down. Others fight even harder, refusing to let Mikhail get caught, instead of being outright killed. The final fight before they reach Mikhail is a familiar face: the man in the blue suit, who is once again wielding a sledgehammer. Finally, he gets a name. Emil Forte, captain of the Dragons. He refuses to let them through to the elevator, and the group takes him on. Once he's down, the four look at each other. It's now, or never.*
 
 
-# 23
+# 24
 # Tip of the Spear
 ### CHICAGO, ILLINOIS, U.S.A
 ### 11:45PM, CST
@@ -680,7 +691,7 @@ And that was soon. Fifteen days.
 
 *He steps forward and refuses to go down without a fight. The group take him on, but not before Cisila destroy the livestream setup, forcefully putting it offline. The group take their masks off. CUE DESTINATION for a 4v1 fight, and the final one before the story ends. A fast-paced fight where the four, Cisila, Kasey, Lyla, and Dani, combine their tactics to bring down Mikhail, but even their combined strength, somehow, isn't enough. One by one, the group falls to the ground, out cold. It's only Cisila and Mikhail left. Switch to FOR WHOSE SAKE (Yakuza Kiwami) for the second and final phase of the fight, where the two slowly wear each other down, and Cisila begins to gain the upper hand. Mikhail has been weakened, and she uses her chance to immobilize him. she shoots him in the legs with her revolvers, and knocks him to the ground. She puts the revolver to his head, and nearly pulls the trigger, but using some self control, she stops herself. Standing up, she pulls out her phone and calls the police. They have no choice but to apprehend Mikhail now, as the murder was pretty much shown live.*
 
-# 24
+# 25
 # Aftermath
 ### CHICAGO, ILLINOIS, U.S.A
 ### 1:01PM, CST
