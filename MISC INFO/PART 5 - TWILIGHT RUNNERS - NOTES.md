@@ -5,7 +5,7 @@ Cisila and Kasey escape nonetheless with the detective, and they find out where 
 
 ### Ideas for SIDE B
 Obviously, this is Stephanie's story and is automatically more like INITIAL D and WANGAN MIDNIGHT as opposed to Cisila's yakuza story. The yakuza should still be involved, but I'm unsure of how. Should it be part of the idea that Stephanie's father is in debt because of the R32? The races may be set up by the yakuza, something that the street gang, the titular Twilight Runners, are unaware of. \
-Speaking of, these are the Twilight Runners as follows: \
+Speaking of, these are the Twilight Runners as follows: 
 - Kawamura Takeshi, Nissan Skyline GT-R GF-BNR34 V-SPEC, gang leader. Not quite an antagonist, but a friendly rival. - Gets "DON'T STOP THE MUSIC" by Lou Grant for his road battle down the mountains and onto a highway, but probably not the Shuto Expressway because of how massive Tokyo is. 
 - Akiyama Soma, Nissan GT-R (2017). Overconfident in his abilities and the car, he's lost more races than anyone else in the gang. The gang keeps him around because when he *does* win, it's a complete and utter destruction of the opponent. Gets "GAS GAS GAS" by Manuel for his road battle on the Shuto Expressway.
 - Kuroda Daigo, Toyota Trueno AE86 GT-APEX, the "sleeper" of the gang. Extremely skilled, despite the appearance of the Toyota. - Fittingly gets "DEJA VU" by Dave Rodgers for his road battle in the mountains. The reference will only go as far as the car and the song, though.
