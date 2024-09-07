@@ -11,3 +11,5 @@ Speaking of, these are the Twilight Runners as follows: \
 - Kuroda Daigo, Toyota Trueno AE86 GT-APEX, the "sleeper" of the gang. Extremely skilled, despite the appearance of the Toyota. - Fittingly gets "DEJA VU" by Dave Rodgers for his road battle in the mountains. The reference will only go as far as the car and the song, though.
 - Kitagawa Mayumi, Mazda RX-7 Spirit R. Face of the gang, in her RX-7, and most notable of the racers. Her RX-7 is a legend in recent times. Gets "NO ONE SLEEP IN TOKYO" by EDO BOYS for her road battle, on the Shuto Expressway
 - Goro Kousuke, Toyota Supra (modern or old model? not sure). Not sure about this character, needs some refinement. Gets "BURNING UP FOR YOU" for their road battle.
+
+Additionally, there are the other non-Twilight Runners racers. Obviously, there's Talin in her Nissan Sileighty who appears unexpectedly. And the Mitsubishi Evo 3 that nearly causes Stephanie to crash in the opening, and turns out to be the catalyst behind a lot of the plot. They are linked to the yakuza, to Stephanie's father, and likely the PALMER-EDEN remnants aswell.
