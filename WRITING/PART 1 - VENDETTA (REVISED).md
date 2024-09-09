@@ -62,7 +62,7 @@ Whatever the rest of PALMER-EDEN's response was, she didn't get to hear it. The 
 #### CISILA J. SIVETA, 24
 
 *A proper intro to the Crimson Bookstore in Chicago, showing Cisila's daily routine with sorting books, helping customers, and so on. She guides a man to a book series she herself used to love, and they have a conversation. The man asks for her number. A little nervously, Cisila clarifies that she doesn't like men. Surprised, the man apologizes and asks if they can at least hang out- they seem to share interests. A little starved for friendship, Cisila takes him up on the offer. After this, we meet Cisila's coworkers, and also get a proper introduction to Lyla.* \
-*Upon leaving the bookstore, Cisila meets up with the man, and we discover his name. Malcolm. The two talk about their interests and eventually discover that they have a lot more in common than they thought. Cisila is glad to have made a friend like this, even if it was in a slightly odd way.*
+*Upon leaving the bookstore, Cisila meets up with the man, and we discover his name. Mark. The two talk about their interests and eventually discover that they have a lot more in common than they thought. Cisila is glad to have made a friend like this, even if it was in a slightly odd way.*
 
 
 # 4
