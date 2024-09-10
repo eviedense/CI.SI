@@ -124,8 +124,8 @@ Gradient sighed again, and finally said something she'd thought she would never,
 *"You're my little girl. And I will never, ever let them take you away again."* she whispered, sincerely.
 
 # 6
-# Return to HEART
-## 08:31, MST, Máneá Standard Time
+# Dead by Dawn
+## 00:31, MST, Máneá Standard Time
 ### September 22nd, 2076
 #### Amadnésam, 'The Triangle', Máneá
 #### CODENAME: GRADIENT
