@@ -55,7 +55,7 @@ Whatever the rest of PALMER-EDEN's response was, she didn't get to hear it. The 
 "Well, I can help out with this, but...not right now. I don't think it's a good idea for you to work looking like this. You've still got some dried blood on your face." Cisila's eyebrows furrowed, and she looked worried. "Really? Ah, shit...I..." She leaned back, but Lyla reassured her, "It's fine. You don't look like you killed someone, at least." Cisila nodded, and responded, "That's good at least. If- if I can get cleaned up, I still want to work. I told myself I had to." and she slowly got up. Lyla got up aswell, "You sure? You look dead tired, Cisila." she pointed out. That was true, yes, but Cisila was determined to work. "I'm good. I'm fine." She waved Lyla away, "I'll...I'll go to the washroom and clean up." Lyla clicked her tongue. "If you say so. Come to talk to me later." And Cisila nodded, heading to the bathroom.
 
 # 3
-# Impromptu Customer
+# The Crimson Bookstore
 ### CHICAGO, ILLINOIS, U.S.A
 ### 4:30PM, CST
 ### SEPTEMBER 29TH, 2033
