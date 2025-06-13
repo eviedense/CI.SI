@@ -1,3 +1,8 @@
+# UM UMUM UM UM I DON'T USE THIS ANYMORE. THAT'S WHY THERE HASN'T BEEN STUFF IN LIKE 9 MONTHS. I JUST USE DOCS NOW. SO IF YOU COME ACROSS THIS. UM. IT NO GOOD. OK BYE
+
+
+
+
 # Hi.
 
 This is a collection of my writing for my writing project. You can find Parts 1, 2, and 3 along with some extra content here. Check EXTRA for the LUNIKS COORDINATION project, DESOLATION Cisila's NOIR video game idea, and find Parts Extra 1 and 2, Contract Killer, and Kasey's "Blurred" in WRITING, in the same place as Parts 1, 2, and 3. 
